@@ -1,0 +1,367 @@
+# Ezekiel 33
+
+**1** ¶ Again the word of the LORD came unto me, saying,
+
+**2** Son of man, speak to the children of thy people, and say unto them, When I bring the sword upon a land, if the people of the land take a man of their coasts, and set him for their watchman_
+
+**3** If when he seeth the sword come upon the land, he blow the trumpet, and warn the people;
+
+**4** Then whosoever heareth the sound of the trumpet, and taketh not warning; if the sword come, and take him away, his blood shall be upon his own head.
+
+**5** He heard the sound of the trumpet, and took not warning; his blood shall be upon him. But he that taketh warning shall deliver his soul.
+
+**6** But if the watchman see the sword come, and blow not the trumpet, and the people be not warned; if the sword come, and take [any] person from among them, he is taken away in his iniquity; but his blood will I require at the watchman's hand.
+
+**7** So thou, O son of man, I have set thee a watchman unto the house of Israel; therefore thou shalt hear the word at my mouth, and warn them from me.
+
+**8** When I say unto the wicked, O wicked [man], thou shalt surely die; if thou dost not speak to warn the wicked from his way, that wicked [man] shall die in his iniquity; but his blood will I require at thine hand.
+
+**9** Nevertheless, if thou warn the wicked of his way to turn from it; if he do not turn from his way, he shall die in his iniquity; but thou hast delivered thy soul.
+
+**10** ¶ Therefore, O thou son of man, speak unto the house of Israel; Thus ye speak, saying, If our transgressions and our sins [be] upon us, and we pine away in them, how should we then live?
+
+**11** Say unto them, [As] I live, saith the Lord GOD, I have no pleasure in the death of the wicked; but that the wicked turn from his way and live_ turn ye, turn ye from your evil ways; for why will ye die, O house of Israel?
+
+**12** Therefore, thou son of man, say unto the children of thy people, The righteousness of the righteous shall not deliver him in the day of his transgression_ as for the wickedness of the wicked, he shall not fall thereby in the day that he turneth from his wickedness; neither shall the righteous be able to live for his [righteousness] in the day that he sinneth.
+
+**13** When I shall say to the righteous, [that] he shall surely live; if he trust to his own righteousness, and commit iniquity, all his righteousnesses shall not be remembered; but for his iniquity that he hath committed, he shall die for it.
+
+**14** Again, when I say unto the wicked, Thou shalt surely die; if he turn from his sin, and do that which is lawful and right;
+
+**15** [If] the wicked restore the pledge, give again that he had robbed, walk in the statutes of life, without committing iniquity; he shall surely live, he shall not die.
+
+**16** None of his sins that he hath committed shall be mentioned unto him_ he hath done that which is lawful and right; he shall surely live.
+
+**17** Yet the children of thy people say, The way of the Lord is not equal_ but as for them, their way is not equal.
+
+**18** When the righteous turneth from his righteousness, and committeth iniquity, he shall even die thereby.
+
+**19** But if the wicked turn from his wickedness, and do that which is lawful and right, he shall live thereby.
+
+**20** Yet ye say, The way of the Lord is not equal. O ye house of Israel, I will judge you every one after his ways.
+
+**21** ¶ And it came to pass in the twelfth year of our captivity, in the tenth [month], in the fifth [day] of the month, [that] one that had escaped out of Jerusalem came unto me, saying, The city is smitten.
+
+**22** Now the hand of the LORD was upon me in the evening, afore he that was escaped came; and had opened my mouth, until he came to me in the morning; and my mouth was opened, and I was no more dumb.
+
+**23** Then the word of the LORD came unto me, saying,
+
+**24** Son of man, they that inhabit those wastes of the land of Israel speak, saying, Abraham was one, and he inherited the land_ but we [are] many; the land is given us for inheritance.
+
+**25** Wherefore say unto them, Thus saith the Lord GOD; Ye eat with the blood, and lift up your eyes toward your idols, and shed blood_ and shall ye possess the land?
+
+**26** Ye stand upon your sword, ye work abomination, and ye defile every one his neighbour's wife_ and shall ye possess the land?
+
+**27** Say thou thus unto them, Thus saith the Lord GOD; [As] I live, surely they that [are] in the wastes shall fall by the sword, and him that [is] in the open field will I give to the beasts to be devoured, and they that [be] in the forts and in the caves shall die of the pestilence.
+
+**28** For I will lay the land most desolate, and the pomp of her strength shall cease; and the mountains of Israel shall be desolate, that none shall pass through.
+
+**29** Then shall they know that I [am] the LORD, when I have laid the land most desolate because of all their abominations which they have committed.
+
+**30** ¶ Also, thou son of man, the children of thy people still are talking against thee by the walls and in the doors of the houses, and speak one to another, every one to his brother, saying, Come, I pray you, and hear what is the word that cometh forth from the LORD.
+
+**31** And they come unto thee as the people cometh, and they sit before thee [as] my people, and they hear thy words, but they will not do them_ for with their mouth they shew much love, [but] their heart goeth after their covetousness.
+
+**32** And, lo, thou [art] unto them as a very lovely song of one that hath a pleasant voice, and can play well on an instrument_ for they hear thy words, but they do them not.
+
+**33** And when this cometh to pass, (lo, it will come,) then shall they know that a prophet hath been among them.
+
+---
+
+## Cross-References
+
+- **Ezekiel 33_2** → **Ezekiel 33_30** [[Ezekiel ch_ 33.md]] (votes_ 5)
+- **Ezekiel 33_2** → **Leviticus 26_25** [[Leviticus ch_ 26.md]] (votes_ 2)
+- **Ezekiel 33_2** → **Hosea 9_8** [[Hosea ch_ 9.md]] (votes_ 2)
+- **Ezekiel 33_2** → **Ezekiel 14_17** [[Ezekiel ch_ 14.md]] (votes_ 4)
+- **Ezekiel 33_2** → **Ezekiel 33_17** [[Ezekiel ch_ 33.md]] (votes_ 4)
+- **Ezekiel 33_2** → **Ezekiel 6_3** [[Ezekiel ch_ 6.md]] (votes_ 2)
+- **Ezekiel 33_2** → **Ezekiel 33_12** [[Ezekiel ch_ 33.md]] (votes_ 2)
+- **Ezekiel 33_2** → **Zechariah 13_7** [[Zechariah ch_ 13.md]] (votes_ 3)
+- **Ezekiel 33_2** → **Ezekiel 33_7** [[Ezekiel ch_ 33.md]] (votes_ 2)
+- **Ezekiel 33_2** → **Isaiah 62_6** [[Isaiah ch_ 62.md]] (votes_ 3)
+- **Ezekiel 33_2** → **Ezekiel 14_21** [[Ezekiel ch_ 14.md]] (votes_ 2)
+- **Ezekiel 33_2** → **Ezekiel 37_18** [[Ezekiel ch_ 37.md]] (votes_ 2)
+- **Ezekiel 33_2** → **Jeremiah 12_12** [[Jeremiah ch_ 12.md]] (votes_ 2)
+- **Ezekiel 33_2** → **Jeremiah 51_12** [[Jeremiah ch_ 51.md]] (votes_ 2)
+- **Ezekiel 33_2** → **Ezekiel 3_11** [[Ezekiel ch_ 3.md]] (votes_ 4)
+- **Ezekiel 33_2** → **Ezekiel 11_8** [[Ezekiel ch_ 11.md]] (votes_ 2)
+- **Ezekiel 33_2** → **Ezekiel 3_27** [[Ezekiel ch_ 3.md]] (votes_ 3)
+- **Ezekiel 33_2** → **Jeremiah 25_31** [[Jeremiah ch_ 25.md]] (votes_ 2)
+- **Ezekiel 33_3** → **Joel 2_1** [[Joel ch_ 2.md]] (votes_ 3)
+- **Ezekiel 33_3** → **Hosea 8_1** [[Hosea ch_ 8.md]] (votes_ 6)
+- **Ezekiel 33_3** → **Jeremiah 6_1** [[Jeremiah ch_ 6.md]] (votes_ 2)
+- **Ezekiel 33_3** → **Nehemiah 4_18** [[Nehemiah ch_ 4.md]] (votes_ 3)
+- **Ezekiel 33_3** → **Jeremiah 51_27** [[Jeremiah ch_ 51.md]] (votes_ 2)
+- **Ezekiel 33_3** → **Isaiah 58_1** [[Isaiah ch_ 58.md]] (votes_ 3)
+- **Ezekiel 33_3** → **Nehemiah 4_20** [[Nehemiah ch_ 4.md]] (votes_ 5)
+- **Ezekiel 33_3** → **Jeremiah 4_5** [[Jeremiah ch_ 4.md]] (votes_ 2)
+- **Ezekiel 33_4** → **Leviticus 20_9** [[Leviticus ch_ 20.md]] (votes_ 2)
+- **Ezekiel 33_4** → **Jeremiah 6_17** [[Jeremiah ch_ 6.md]] (votes_ 5)
+- **Ezekiel 33_4** → **Acts 18_6** [[Acts ch_ 18.md]] (votes_ 6)
+- **Ezekiel 33_4** → **Proverbs 29_1** [[Proverbs ch_ 29.md]] (votes_ 2)
+- **Ezekiel 33_4** → **Ezekiel 33_9** [[Ezekiel ch_ 33.md]] (votes_ 5)
+- **Ezekiel 33_4** → **2 Samuel 1_16** [[2 Samuel ch_ 1.md]] (votes_ 2)
+- **Ezekiel 33_4** → **James 1_22** [[James ch_ 1.md]] (votes_ 2)
+- **Ezekiel 33_4** → **2 Chronicles 25_16** [[2 Chronicles ch_ 25.md]] (votes_ 4)
+- **Ezekiel 33_4** → **Acts 20_26** [[Acts ch_ 20.md]] (votes_ 2)
+- **Ezekiel 33_4** → **Ezekiel 33_5** [[Ezekiel ch_ 33.md]] (votes_ 3)
+- **Ezekiel 33_4** → **Ezekiel 18_13** [[Ezekiel ch_ 18.md]] (votes_ 8)
+- **Ezekiel 33_4** → **1 Kings 2_37** [[1 Kings ch_ 2.md]] (votes_ 2)
+- **Ezekiel 33_5** → **Hebrews 11_7** [[Hebrews ch_ 11.md]] (votes_ 5)
+- **Ezekiel 33_5** → **Psalms 95_7** [[Psalms ch_ 95.md]] (votes_ 2)
+- **Ezekiel 33_5** → **Isaiah 51_2** [[Isaiah ch_ 51.md]] (votes_ 3)
+- **Ezekiel 33_5** → **2 Kings 6_10** [[2 Kings ch_ 6.md]] (votes_ 3)
+- **Ezekiel 33_5** → **John 8_39** [[John ch_ 8.md]] (votes_ 4)
+- **Ezekiel 33_6** → **Genesis 42_22** [[Genesis ch_ 42.md]] (votes_ 5)
+- **Ezekiel 33_6** → **Proverbs 14_32** [[Proverbs ch_ 14.md]] (votes_ 1)
+- **Ezekiel 33_6** → **Ezekiel 18_24** [[Ezekiel ch_ 18.md]] (votes_ 2)
+- **Ezekiel 33_6** → **Genesis 9_5** [[Genesis ch_ 9.md]] (votes_ 3)
+- **Ezekiel 33_6** → **Ezekiel 34_10** [[Ezekiel ch_ 34.md]] (votes_ 2)
+- **Ezekiel 33_6** → **2 Samuel 4_11** [[2 Samuel ch_ 4.md]] (votes_ 5)
+- **Ezekiel 33_6** → **Ezekiel 18_20** [[Ezekiel ch_ 18.md]] (votes_ 4)
+- **Ezekiel 33_7** → **1 Corinthians 15_3** [[1 Corinthians ch_ 15.md]] (votes_ 3)
+- **Ezekiel 33_7** → **Isaiah 62_6** [[Isaiah ch_ 62.md]] (votes_ 6)
+- **Ezekiel 33_7** → **Jeremiah 23_28** [[Jeremiah ch_ 23.md]] (votes_ 3)
+- **Ezekiel 33_7** → **Song of Solomon 5_7** [[Song of Solomon ch_ 5.md]] (votes_ 4)
+- **Ezekiel 33_7** → **Jeremiah 26_2** [[Jeremiah ch_ 26.md]] (votes_ 10)
+- **Ezekiel 33_7** → **Jeremiah 1_17** [[Jeremiah ch_ 1.md]] (votes_ 6)
+- **Ezekiel 33_7** → **Ephesians 4_11** [[Ephesians ch_ 4.md]] (votes_ 4)
+- **Ezekiel 33_7** → **Jeremiah 31_6** [[Jeremiah ch_ 31.md]] (votes_ 3)
+- **Ezekiel 33_7** → **Micah 7_4** [[Micah ch_ 7.md]] (votes_ 3)
+- **Ezekiel 33_7** → **Acts 5_20** [[Acts ch_ 5.md]] (votes_ 8)
+- **Ezekiel 33_7** → **Jeremiah 6_27** [[Jeremiah ch_ 6.md]] (votes_ 4)
+- **Ezekiel 33_7** → **Acts 20_20** [[Acts ch_ 20.md]] (votes_ 3)
+- **Ezekiel 33_7** → **1 Corinthians 11_23** [[1 Corinthians ch_ 11.md]] (votes_ 3)
+- **Ezekiel 33_7** → **2 Chronicles 19_10** [[2 Chronicles ch_ 19.md]] (votes_ 4)
+- **Ezekiel 33_7** → **1 Kings 22_14** [[1 Kings ch_ 22.md]] (votes_ 3)
+- **Ezekiel 33_7** → **Song of Solomon 3_3** [[Song of Solomon ch_ 3.md]] (votes_ 3)
+- **Ezekiel 33_7** → **Hebrews 13_17** [[Hebrews ch_ 13.md]] (votes_ 7)
+- **Ezekiel 33_8** → **Genesis 2_17** [[Genesis ch_ 2.md]] (votes_ 0)
+- **Ezekiel 33_8** → **Ezekiel 18_4** [[Ezekiel ch_ 18.md]] (votes_ 4)
+- **Ezekiel 33_8** → **Ecclesiastes 8_13** [[Ecclesiastes ch_ 8.md]] (votes_ 1)
+- **Ezekiel 33_8** → **Numbers 27_3** [[Numbers ch_ 27.md]] (votes_ 1)
+- **Ezekiel 33_8** → **Genesis 3_4** [[Genesis ch_ 3.md]] (votes_ 3)
+- **Ezekiel 33_8** → **Ezekiel 18_20** [[Ezekiel ch_ 18.md]] (votes_ 3)
+- **Ezekiel 33_8** → **Ezekiel 18_18** [[Ezekiel ch_ 18.md]] (votes_ 2)
+- **Ezekiel 33_8** → **Ezekiel 33_14** [[Ezekiel ch_ 33.md]] (votes_ 5)
+- **Ezekiel 33_8** → **Ezekiel 33_6** [[Ezekiel ch_ 33.md]] (votes_ 8)
+- **Ezekiel 33_8** → **Isaiah 3_11** [[Isaiah ch_ 3.md]] (votes_ 2)
+- **Ezekiel 33_8** → **Proverbs 11_21** [[Proverbs ch_ 11.md]] (votes_ 2)
+- **Ezekiel 33_9** → **Acts 13_46** [[Acts ch_ 13.md]] (votes_ 1)
+- **Ezekiel 33_9** → **Acts 13_40** [[Acts ch_ 13.md]] (votes_ 2)
+- **Ezekiel 33_9** → **Ezekiel 3_19** [[Ezekiel ch_ 3.md]] (votes_ 8)
+- **Ezekiel 33_9** → **1 Thessalonians 5_14** [[1 Thessalonians ch_ 5.md]] (votes_ 2)
+- **Ezekiel 33_9** → **Luke 12_47** [[Luke ch_ 12.md]] (votes_ 2)
+- **Ezekiel 33_9** → **Ezekiel 3_21** [[Ezekiel ch_ 3.md]] (votes_ 3)
+- **Ezekiel 33_9** → **Hebrews 2_3** [[Hebrews ch_ 2.md]] (votes_ 2)
+- **Ezekiel 33_9** → **Proverbs 15_10** [[Proverbs ch_ 15.md]] (votes_ 3)
+- **Ezekiel 33_9** → **Hebrews 12_25** [[Hebrews ch_ 12.md]] (votes_ 2)
+- **Ezekiel 33_9** → **Proverbs 29_1** [[Proverbs ch_ 29.md]] (votes_ 2)
+- **Ezekiel 33_9** → **Acts 20_26** [[Acts ch_ 20.md]] (votes_ 4)
+- **Ezekiel 33_9** → **John 8_24** [[John ch_ 8.md]] (votes_ 2)
+- **Ezekiel 33_10** → **Isaiah 49_14** [[Isaiah ch_ 49.md]] (votes_ 4)
+- **Ezekiel 33_10** → **Leviticus 26_39** [[Leviticus ch_ 26.md]] (votes_ 3)
+- **Ezekiel 33_10** → **Isaiah 51_20** [[Isaiah ch_ 51.md]] (votes_ 2)
+- **Ezekiel 33_10** → **Psalms 130_7** [[Psalms ch_ 130.md]] (votes_ 2)
+- **Ezekiel 33_10** → **Jeremiah 2_25** [[Jeremiah ch_ 2.md]] (votes_ 2)
+- **Ezekiel 33_10** → **Ezekiel 4_17** [[Ezekiel ch_ 4.md]] (votes_ 3)
+- **Ezekiel 33_10** → **Ezekiel 24_23** [[Ezekiel ch_ 24.md]] (votes_ 4)
+- **Ezekiel 33_10** → **Ezekiel 37_11** [[Ezekiel ch_ 37.md]] (votes_ 4)
+- **Ezekiel 33_11** → **Zephaniah 2_9** [[Zephaniah ch_ 2.md]] (votes_ 2)
+- **Ezekiel 33_11** → **Numbers 14_21** [[Numbers ch_ 14.md]] (votes_ 6)
+- **Ezekiel 33_11** → **Jeremiah 3_22** [[Jeremiah ch_ 3.md]] (votes_ 11)
+- **Ezekiel 33_11** → **Isaiah 49_18** [[Isaiah ch_ 49.md]] (votes_ 4)
+- **Ezekiel 33_11** → **Acts 3_19** [[Acts ch_ 3.md]] (votes_ 23)
+- **Ezekiel 33_11** → **Ezekiel 14_6** [[Ezekiel ch_ 14.md]] (votes_ 9)
+- **Ezekiel 33_11** → **Hosea 14_1** [[Hosea ch_ 14.md]] (votes_ 11)
+- **Ezekiel 33_11** → **Jeremiah 22_24** [[Jeremiah ch_ 22.md]] (votes_ 3)
+- **Ezekiel 33_11** → **Lamentations 3_33** [[Lamentations ch_ 3.md]] (votes_ 7)
+- **Ezekiel 33_11** → **Hosea 11_8** [[Hosea ch_ 11.md]] (votes_ 8)
+- **Ezekiel 33_11** → **Numbers 14_28** [[Numbers ch_ 14.md]] (votes_ 4)
+- **Ezekiel 33_11** → **Ezekiel 18_23** [[Ezekiel ch_ 18.md]] (votes_ 35)
+- **Ezekiel 33_11** → **Ezekiel 5_11** [[Ezekiel ch_ 5.md]] (votes_ 8)
+- **Ezekiel 33_11** → **Ezekiel 16_48** [[Ezekiel ch_ 16.md]] (votes_ -1)
+- **Ezekiel 33_11** → **Proverbs 1_23** [[Proverbs ch_ 1.md]] (votes_ 11)
+- **Ezekiel 33_11** → **2 Samuel 14_14** [[2 Samuel ch_ 14.md]] (votes_ 7)
+- **Ezekiel 33_11** → **Acts 26_20** [[Acts ch_ 26.md]] (votes_ 5)
+- **Ezekiel 33_11** → **2 Peter 3_9** [[2 Peter ch_ 3.md]] (votes_ 33)
+- **Ezekiel 33_11** → **Romans 14_11** [[Romans ch_ 14.md]] (votes_ 1)
+- **Ezekiel 33_11** → **Daniel 9_13** [[Daniel ch_ 9.md]] (votes_ 7)
+- **Ezekiel 33_11** → **1 Timothy 2_4** [[1 Timothy ch_ 2.md]] (votes_ 37)
+- **Ezekiel 33_11** → **Jeremiah 46_18** [[Jeremiah ch_ 46.md]] (votes_ 3)
+- **Ezekiel 33_11** → **Proverbs 8_36** [[Proverbs ch_ 8.md]] (votes_ 18)
+- **Ezekiel 33_12** → **Ezekiel 18_21** [[Ezekiel ch_ 18.md]] (votes_ 3)
+- **Ezekiel 33_12** → **2 Chronicles 7_14** [[2 Chronicles ch_ 7.md]] (votes_ 10)
+- **Ezekiel 33_12** → **Ezekiel 33_2** [[Ezekiel ch_ 33.md]] (votes_ 3)
+- **Ezekiel 33_12** → **Romans 3_25** [[Romans ch_ 3.md]] (votes_ 4)
+- **Ezekiel 33_12** → **1 John 2_1** [[1 John ch_ 2.md]] (votes_ 3)
+- **Ezekiel 33_13** → **Philippians 3_9** [[Philippians ch_ 3.md]] (votes_ 2)
+- **Ezekiel 33_13** → **Ezekiel 3_20** [[Ezekiel ch_ 3.md]] (votes_ 3)
+- **Ezekiel 33_13** → **1 John 2_19** [[1 John ch_ 2.md]] (votes_ 2)
+- **Ezekiel 33_13** → **Ezekiel 18_4** [[Ezekiel ch_ 18.md]] (votes_ 5)
+- **Ezekiel 33_13** → **Hebrews 10_38** [[Hebrews ch_ 10.md]] (votes_ 6)
+- **Ezekiel 33_13** → **Romans 10_3** [[Romans ch_ 10.md]] (votes_ 2)
+- **Ezekiel 33_13** → **Ezekiel 18_24** [[Ezekiel ch_ 18.md]] (votes_ 7)
+- **Ezekiel 33_14** → **Micah 6_8** [[Micah ch_ 6.md]] (votes_ 3)
+- **Ezekiel 33_14** → **Acts 3_19** [[Acts ch_ 3.md]] (votes_ 2)
+- **Ezekiel 33_14** → **Hosea 14_1** [[Hosea ch_ 14.md]] (votes_ 4)
+- **Ezekiel 33_14** → **Ezekiel 18_21** [[Ezekiel ch_ 18.md]] (votes_ 2)
+- **Ezekiel 33_14** → **Ezekiel 18_27** [[Ezekiel ch_ 18.md]] (votes_ 8)
+- **Ezekiel 33_14** → **Matthew 9_13** [[Matthew ch_ 9.md]] (votes_ 2)
+- **Ezekiel 33_14** → **Ezekiel 33_8** [[Ezekiel ch_ 33.md]] (votes_ 4)
+- **Ezekiel 33_14** → **Isaiah 55_7** [[Isaiah ch_ 55.md]] (votes_ 4)
+- **Ezekiel 33_14** → **Jeremiah 4_1** [[Jeremiah ch_ 4.md]] (votes_ 2)
+- **Ezekiel 33_14** → **Isaiah 3_11** [[Isaiah ch_ 3.md]] (votes_ 2)
+- **Ezekiel 33_14** → **Proverbs 28_13** [[Proverbs ch_ 28.md]] (votes_ 3)
+- **Ezekiel 33_15** → **Job 24_3** [[Job ch_ 24.md]] (votes_ 2)
+- **Ezekiel 33_15** → **Ezekiel 18_12** [[Ezekiel ch_ 18.md]] (votes_ 2)
+- **Ezekiel 33_15** → **Luke 1_6** [[Luke ch_ 1.md]] (votes_ 2)
+- **Ezekiel 33_15** → **Psalms 119_93** [[Psalms ch_ 119.md]] (votes_ 3)
+- **Ezekiel 33_15** → **Ezekiel 18_7** [[Ezekiel ch_ 18.md]] (votes_ 3)
+- **Ezekiel 33_15** → **Luke 19_8** [[Luke ch_ 19.md]] (votes_ 7)
+- **Ezekiel 33_15** → **Ezekiel 20_13** [[Ezekiel ch_ 20.md]] (votes_ 2)
+- **Ezekiel 33_15** → **Leviticus 18_5** [[Leviticus ch_ 18.md]] (votes_ 3)
+- **Ezekiel 33_15** → **Job 24_9** [[Job ch_ 24.md]] (votes_ 2)
+- **Ezekiel 33_15** → **Job 22_6** [[Job ch_ 22.md]] (votes_ 2)
+- **Ezekiel 33_15** → **Ezekiel 20_21** [[Ezekiel ch_ 20.md]] (votes_ 2)
+- **Ezekiel 33_15** → **Amos 2_8** [[Amos ch_ 2.md]] (votes_ 2)
+- **Ezekiel 33_15** → **Ezekiel 18_16** [[Ezekiel ch_ 18.md]] (votes_ 2)
+- **Ezekiel 33_15** → **Deuteronomy 24_17** [[Deuteronomy ch_ 24.md]] (votes_ 2)
+- **Ezekiel 33_15** → **Deuteronomy 24_6** [[Deuteronomy ch_ 24.md]] (votes_ 2)
+- **Ezekiel 33_15** → **Ezekiel 20_11** [[Ezekiel ch_ 20.md]] (votes_ 8)
+- **Ezekiel 33_16** → **Isaiah 1_18** [[Isaiah ch_ 1.md]] (votes_ 3)
+- **Ezekiel 33_16** → **Isaiah 44_22** [[Isaiah ch_ 44.md]] (votes_ 3)
+- **Ezekiel 33_16** → **Romans 5_16** [[Romans ch_ 5.md]] (votes_ 2)
+- **Ezekiel 33_16** → **Isaiah 43_25** [[Isaiah ch_ 43.md]] (votes_ 5)
+- **Ezekiel 33_16** → **Ezekiel 18_22** [[Ezekiel ch_ 18.md]] (votes_ 6)
+- **Ezekiel 33_16** → **Romans 5_21** [[Romans ch_ 5.md]] (votes_ 1)
+- **Ezekiel 33_17** → **Job 40_8** [[Job ch_ 40.md]] (votes_ 2)
+- **Ezekiel 33_17** → **Ezekiel 18_25** [[Ezekiel ch_ 18.md]] (votes_ 3)
+- **Ezekiel 33_17** → **Ezekiel 33_20** [[Ezekiel ch_ 33.md]] (votes_ 2)
+- **Ezekiel 33_17** → **Ezekiel 18_29** [[Ezekiel ch_ 18.md]] (votes_ 3)
+- **Ezekiel 33_17** → **Job 35_2** [[Job ch_ 35.md]] (votes_ 2)
+- **Ezekiel 33_18** → **Hebrews 10_38** [[Hebrews ch_ 10.md]] (votes_ 4)
+- **Ezekiel 33_18** → **Ezekiel 3_20** [[Ezekiel ch_ 3.md]] (votes_ 2)
+- **Ezekiel 33_19** → **Ezekiel 33_14** [[Ezekiel ch_ 33.md]] (votes_ 2)
+- **Ezekiel 33_20** → **Ezekiel 18_25** [[Ezekiel ch_ 18.md]] (votes_ 4)
+- **Ezekiel 33_20** → **Ezekiel 33_17** [[Ezekiel ch_ 33.md]] (votes_ 2)
+- **Ezekiel 33_20** → **Proverbs 19_3** [[Proverbs ch_ 19.md]] (votes_ 2)
+- **Ezekiel 33_20** → **John 5_29** [[John ch_ 5.md]] (votes_ 2)
+- **Ezekiel 33_20** → **Ecclesiastes 12_14** [[Ecclesiastes ch_ 12.md]] (votes_ 2)
+- **Ezekiel 33_20** → **Psalms 62_12** [[Psalms ch_ 62.md]] (votes_ 2)
+- **Ezekiel 33_20** → **2 Corinthians 5_10** [[2 Corinthians ch_ 5.md]] (votes_ 2)
+- **Ezekiel 33_20** → **Matthew 16_27** [[Matthew ch_ 16.md]] (votes_ 5)
+- **Ezekiel 33_20** → **Revelation 22_12** [[Revelation ch_ 22.md]] (votes_ 2)
+- **Ezekiel 33_21** → **2 Kings 25_4** [[2 Kings ch_ 25.md]] (votes_ 2)
+- **Ezekiel 33_21** → **Ezekiel 40_1** [[Ezekiel ch_ 40.md]] (votes_ 2)
+- **Ezekiel 33_21** → **Ezekiel 1_2** [[Ezekiel ch_ 1.md]] (votes_ 3)
+- **Ezekiel 33_21** → **2 Kings 25_10** [[2 Kings ch_ 25.md]] (votes_ 2)
+- **Ezekiel 33_21** → **Ezekiel 32_1** [[Ezekiel ch_ 32.md]] (votes_ 2)
+- **Ezekiel 33_22** → **Ezekiel 40_1** [[Ezekiel ch_ 40.md]] (votes_ 2)
+- **Ezekiel 33_22** → **Ezekiel 1_3** [[Ezekiel ch_ 1.md]] (votes_ 6)
+- **Ezekiel 33_22** → **Luke 1_64** [[Luke ch_ 1.md]] (votes_ 2)
+- **Ezekiel 33_22** → **Ezekiel 37_1** [[Ezekiel ch_ 37.md]] (votes_ 4)
+- **Ezekiel 33_22** → **Ezekiel 3_22** [[Ezekiel ch_ 3.md]] (votes_ 2)
+- **Ezekiel 33_24** → **Romans 4_12** [[Romans ch_ 4.md]] (votes_ 4)
+- **Ezekiel 33_24** → **Acts 7_5** [[Acts ch_ 7.md]] (votes_ 6)
+- **Ezekiel 33_24** → **Jeremiah 39_10** [[Jeremiah ch_ 39.md]] (votes_ 4)
+- **Ezekiel 33_24** → **Ezekiel 11_15** [[Ezekiel ch_ 11.md]] (votes_ 3)
+- **Ezekiel 33_24** → **Ezekiel 36_4** [[Ezekiel ch_ 36.md]] (votes_ 5)
+- **Ezekiel 33_24** → **Matthew 3_9** [[Matthew ch_ 3.md]] (votes_ 4)
+- **Ezekiel 33_24** → **Jeremiah 40_7** [[Jeremiah ch_ 40.md]] (votes_ 5)
+- **Ezekiel 33_24** → **Ezekiel 33_27** [[Ezekiel ch_ 33.md]] (votes_ 6)
+- **Ezekiel 33_24** → **Micah 3_11** [[Micah ch_ 3.md]] (votes_ 3)
+- **Ezekiel 33_24** → **Romans 9_7** [[Romans ch_ 9.md]] (votes_ 3)
+- **Ezekiel 33_24** → **1 Thessalonians 5_3** [[1 Thessalonians ch_ 5.md]] (votes_ 3)
+- **Ezekiel 33_24** → **John 8_33** [[John ch_ 8.md]] (votes_ 3)
+- **Ezekiel 33_24** → **Ezekiel 34_2** [[Ezekiel ch_ 34.md]] (votes_ 3)
+- **Ezekiel 33_24** → **Luke 3_8** [[Luke ch_ 3.md]] (votes_ 5)
+- **Ezekiel 33_24** → **Isaiah 51_2** [[Isaiah ch_ 51.md]] (votes_ 6)
+- **Ezekiel 33_24** → **John 8_39** [[John ch_ 8.md]] (votes_ 3)
+- **Ezekiel 33_25** → **Ezekiel 18_6** [[Ezekiel ch_ 18.md]] (votes_ 3)
+- **Ezekiel 33_25** → **Acts 21_25** [[Acts ch_ 21.md]] (votes_ 2)
+- **Ezekiel 33_25** → **Ezekiel 18_15** [[Ezekiel ch_ 18.md]] (votes_ 2)
+- **Ezekiel 33_25** → **Deuteronomy 4_19** [[Deuteronomy ch_ 4.md]] (votes_ 2)
+- **Ezekiel 33_25** → **Leviticus 19_26** [[Leviticus ch_ 19.md]] (votes_ 2)
+- **Ezekiel 33_25** → **Psalms 24_4** [[Psalms ch_ 24.md]] (votes_ 2)
+- **Ezekiel 33_25** → **Genesis 9_4** [[Genesis ch_ 9.md]] (votes_ 4)
+- **Ezekiel 33_25** → **Ezekiel 22_9** [[Ezekiel ch_ 22.md]] (votes_ 2)
+- **Ezekiel 33_25** → **Deuteronomy 12_16** [[Deuteronomy ch_ 12.md]] (votes_ 4)
+- **Ezekiel 33_25** → **Acts 15_29** [[Acts ch_ 15.md]] (votes_ 2)
+- **Ezekiel 33_25** → **Leviticus 3_17** [[Leviticus ch_ 3.md]] (votes_ 3)
+- **Ezekiel 33_25** → **Ezekiel 18_12** [[Ezekiel ch_ 18.md]] (votes_ 2)
+- **Ezekiel 33_25** → **Ezekiel 22_6** [[Ezekiel ch_ 22.md]] (votes_ 3)
+- **Ezekiel 33_25** → **Ezekiel 9_9** [[Ezekiel ch_ 9.md]] (votes_ 2)
+- **Ezekiel 33_25** → **Ezekiel 22_27** [[Ezekiel ch_ 22.md]] (votes_ 3)
+- **Ezekiel 33_26** → **Revelation 21_8** [[Revelation ch_ 21.md]] (votes_ 2)
+- **Ezekiel 33_26** → **1 Peter 4_3** [[1 Peter ch_ 4.md]] (votes_ 2)
+- **Ezekiel 33_26** → **Genesis 27_40** [[Genesis ch_ 27.md]] (votes_ 3)
+- **Ezekiel 33_26** → **Leviticus 20_22** [[Leviticus ch_ 20.md]] (votes_ 2)
+- **Ezekiel 33_26** → **Ezekiel 18_6** [[Ezekiel ch_ 18.md]] (votes_ 2)
+- **Ezekiel 33_26** → **Ezekiel 18_15** [[Ezekiel ch_ 18.md]] (votes_ 2)
+- **Ezekiel 33_26** → **1 Samuel 2_30** [[1 Samuel ch_ 2.md]] (votes_ 2)
+- **Ezekiel 33_26** → **Revelation 21_27** [[Revelation ch_ 21.md]] (votes_ 2)
+- **Ezekiel 33_26** → **Leviticus 20_13** [[Leviticus ch_ 20.md]] (votes_ 2)
+- **Ezekiel 33_26** → **Zephaniah 3_3** [[Zephaniah ch_ 3.md]] (votes_ 3)
+- **Ezekiel 33_27** → **Isaiah 2_19** [[Isaiah ch_ 2.md]] (votes_ 2)
+- **Ezekiel 33_27** → **1 Samuel 24_3** [[1 Samuel ch_ 24.md]] (votes_ 2)
+- **Ezekiel 33_27** → **Jeremiah 42_22** [[Jeremiah ch_ 42.md]] (votes_ 4)
+- **Ezekiel 33_27** → **Jeremiah 44_12** [[Jeremiah ch_ 44.md]] (votes_ 2)
+- **Ezekiel 33_27** → **Ezekiel 33_24** [[Ezekiel ch_ 33.md]] (votes_ 2)
+- **Ezekiel 33_27** → **1 Samuel 23_14** [[1 Samuel ch_ 23.md]] (votes_ 2)
+- **Ezekiel 33_27** → **Judges 6_2** [[Judges ch_ 6.md]] (votes_ 2)
+- **Ezekiel 33_27** → **Ezekiel 39_4** [[Ezekiel ch_ 39.md]] (votes_ 3)
+- **Ezekiel 33_27** → **1 Samuel 22_1** [[1 Samuel ch_ 22.md]] (votes_ 2)
+- **Ezekiel 33_27** → **1 Samuel 13_6** [[1 Samuel ch_ 13.md]] (votes_ 4)
+- **Ezekiel 33_27** → **Jeremiah 41_9** [[Jeremiah ch_ 41.md]] (votes_ 2)
+- **Ezekiel 33_28** → **Ezekiel 7_24** [[Ezekiel ch_ 7.md]] (votes_ 4)
+- **Ezekiel 33_28** → **Jeremiah 25_11** [[Jeremiah ch_ 25.md]] (votes_ 2)
+- **Ezekiel 33_28** → **Ezekiel 36_4** [[Ezekiel ch_ 36.md]] (votes_ 2)
+- **Ezekiel 33_28** → **Ezekiel 15_8** [[Ezekiel ch_ 15.md]] (votes_ 2)
+- **Ezekiel 33_28** → **Jeremiah 44_22** [[Jeremiah ch_ 44.md]] (votes_ 3)
+- **Ezekiel 33_28** → **Jeremiah 44_6** [[Jeremiah ch_ 44.md]] (votes_ 3)
+- **Ezekiel 33_28** → **Ezekiel 24_21** [[Ezekiel ch_ 24.md]] (votes_ 3)
+- **Ezekiel 33_28** → **Ezekiel 6_14** [[Ezekiel ch_ 6.md]] (votes_ 3)
+- **Ezekiel 33_28** → **2 Chronicles 36_21** [[2 Chronicles ch_ 36.md]] (votes_ 2)
+- **Ezekiel 33_28** → **Jeremiah 16_16** [[Jeremiah ch_ 16.md]] (votes_ 2)
+- **Ezekiel 33_28** → **Micah 7_13** [[Micah ch_ 7.md]] (votes_ 3)
+- **Ezekiel 33_28** → **Isaiah 6_11** [[Isaiah ch_ 6.md]] (votes_ 2)
+- **Ezekiel 33_28** → **Ezekiel 12_20** [[Ezekiel ch_ 12.md]] (votes_ 2)
+- **Ezekiel 33_28** → **Jeremiah 9_11** [[Jeremiah ch_ 9.md]] (votes_ 2)
+- **Ezekiel 33_28** → **Jeremiah 44_2** [[Jeremiah ch_ 44.md]] (votes_ 3)
+- **Ezekiel 33_29** → **Psalms 9_16** [[Psalms ch_ 9.md]] (votes_ 2)
+- **Ezekiel 33_29** → **Ezekiel 6_11** [[Ezekiel ch_ 6.md]] (votes_ 2)
+- **Ezekiel 33_29** → **Ezekiel 23_49** [[Ezekiel ch_ 23.md]] (votes_ 2)
+- **Ezekiel 33_29** → **Exodus 14_18** [[Exodus ch_ 14.md]] (votes_ 2)
+- **Ezekiel 33_29** → **Ezekiel 6_7** [[Ezekiel ch_ 6.md]] (votes_ 3)
+- **Ezekiel 33_29** → **Ezekiel 25_11** [[Ezekiel ch_ 25.md]] (votes_ 2)
+- **Ezekiel 33_29** → **Ezekiel 7_27** [[Ezekiel ch_ 7.md]] (votes_ 2)
+- **Ezekiel 33_30** → **Jeremiah 18_18** [[Jeremiah ch_ 18.md]] (votes_ 2)
+- **Ezekiel 33_30** → **Isaiah 29_13** [[Isaiah ch_ 29.md]] (votes_ 3)
+- **Ezekiel 33_30** → **Matthew 15_8** [[Matthew ch_ 15.md]] (votes_ 3)
+- **Ezekiel 33_30** → **Jeremiah 42_20** [[Jeremiah ch_ 42.md]] (votes_ 2)
+- **Ezekiel 33_30** → **Jeremiah 23_35** [[Jeremiah ch_ 23.md]] (votes_ 3)
+- **Ezekiel 33_30** → **Isaiah 58_2** [[Isaiah ch_ 58.md]] (votes_ 3)
+- **Ezekiel 33_31** → **Isaiah 29_13** [[Isaiah ch_ 29.md]] (votes_ 12)
+- **Ezekiel 33_31** → **Luke 16_14** [[Luke ch_ 16.md]] (votes_ 5)
+- **Ezekiel 33_31** → **Ezekiel 22_27** [[Ezekiel ch_ 22.md]] (votes_ 5)
+- **Ezekiel 33_31** → **Ephesians 5_5** [[Ephesians ch_ 5.md]] (votes_ 5)
+- **Ezekiel 33_31** → **Luke 8_21** [[Luke ch_ 8.md]] (votes_ 6)
+- **Ezekiel 33_31** → **Acts 10_33** [[Acts ch_ 10.md]] (votes_ 5)
+- **Ezekiel 33_31** → **Luke 11_28** [[Luke ch_ 11.md]] (votes_ 12)
+- **Ezekiel 33_31** → **Isaiah 28_13** [[Isaiah ch_ 28.md]] (votes_ 7)
+- **Ezekiel 33_31** → **Matthew 13_22** [[Matthew ch_ 13.md]] (votes_ 16)
+- **Ezekiel 33_31** → **Ezekiel 8_1** [[Ezekiel ch_ 8.md]] (votes_ 8)
+- **Ezekiel 33_31** → **Matthew 6_24** [[Matthew ch_ 6.md]] (votes_ 5)
+- **Ezekiel 33_31** → **Matthew 19_22** [[Matthew ch_ 19.md]] (votes_ 5)
+- **Ezekiel 33_31** → **Jeremiah 44_16** [[Jeremiah ch_ 44.md]] (votes_ 8)
+- **Ezekiel 33_31** → **Luke 10_39** [[Luke ch_ 10.md]] (votes_ 6)
+- **Ezekiel 33_31** → **Ezekiel 14_1** [[Ezekiel ch_ 14.md]] (votes_ 5)
+- **Ezekiel 33_32** → **John 5_35** [[John ch_ 5.md]] (votes_ 3)
+- **Ezekiel 33_32** → **Mark 6_20** [[Mark ch_ 6.md]] (votes_ 5)
+- **Ezekiel 33_33** → **Jeremiah 28_9** [[Jeremiah ch_ 28.md]] (votes_ 5)
+- **Ezekiel 33_33** → **Ezekiel 2_5** [[Ezekiel ch_ 2.md]] (votes_ 4)
+- **Ezekiel 33_33** → **Ezekiel 33_29** [[Ezekiel ch_ 33.md]] (votes_ 2)
+- **Ezekiel 33_33** → **Luke 10_11** [[Luke ch_ 10.md]] (votes_ 2)
+- **Ezekiel 33_33** → **2 Kings 5_8** [[2 Kings ch_ 5.md]] (votes_ 2)

@@ -1,0 +1,138 @@
+# Psalms 6
+
+**1** ¶ To the chief Musician on Neginoth upon Sheminith, A Psalm of David. O LORD, rebuke me not in thine anger, neither chasten me in thy hot displeasure.
+
+**2** Have mercy upon me, O LORD; for I [am] weak_ O LORD, heal me; for my bones are vexed.
+
+**3** My soul is also sore vexed_ but thou, O LORD, how long?
+
+**4** Return, O LORD, deliver my soul_ oh save me for thy mercies' sake.
+
+**5** For in death [there is] no remembrance of thee_ in the grave who shall give thee thanks?
+
+**6** I am weary with my groaning; all the night make I my bed to swim; I water my couch with my tears.
+
+**7** Mine eye is consumed because of grief; it waxeth old because of all mine enemies.
+
+**8** ¶ Depart from me, all ye workers of iniquity; for the LORD hath heard the voice of my weeping.
+
+**9** The LORD hath heard my supplication; the LORD will receive my prayer.
+
+**10** Let all mine enemies be ashamed and sore vexed_ let them return [and] be ashamed suddenly.
+
+---
+
+## Cross-References
+
+- **Psalms 6_1** → **Psalms 12_1** [[Psalms ch_ 12.md]] (votes_ 4)
+- **Psalms 6_1** → **Psalms 2_5** [[Psalms ch_ 2.md]] (votes_ 3)
+- **Psalms 6_1** → **Isaiah 54_9** [[Isaiah ch_ 54.md]] (votes_ 5)
+- **Psalms 6_1** → **Psalms 4_1** [[Psalms ch_ 4.md]] (votes_ 5)
+- **Psalms 6_1** → **Jeremiah 10_24** [[Jeremiah ch_ 10.md]] (votes_ 7)
+- **Psalms 6_1** → **Psalms 118_18** [[Psalms ch_ 118.md]] (votes_ 8)
+- **Psalms 6_1** → **Jeremiah 46_28** [[Jeremiah ch_ 46.md]] (votes_ 8)
+- **Psalms 6_1** → **Isaiah 57_16** [[Isaiah ch_ 57.md]] (votes_ 6)
+- **Psalms 6_1** → **1 Chronicles 15_21** [[1 Chronicles ch_ 15.md]] (votes_ 6)
+- **Psalms 6_1** → **Psalms 38_1** [[Psalms ch_ 38.md]] (votes_ 9)
+- **Psalms 6_2** → **Job 19_21** [[Job ch_ 19.md]] (votes_ 1)
+- **Psalms 6_2** → **Psalms 38_3** [[Psalms ch_ 38.md]] (votes_ 5)
+- **Psalms 6_2** → **Psalms 22_14** [[Psalms ch_ 22.md]] (votes_ 3)
+- **Psalms 6_2** → **Psalms 51_8** [[Psalms ch_ 51.md]] (votes_ 6)
+- **Psalms 6_2** → **Hosea 6_1** [[Hosea ch_ 6.md]] (votes_ 13)
+- **Psalms 6_2** → **Genesis 20_17** [[Genesis ch_ 20.md]] (votes_ 5)
+- **Psalms 6_2** → **Numbers 12_13** [[Numbers ch_ 12.md]] (votes_ 4)
+- **Psalms 6_2** → **Psalms 31_10** [[Psalms ch_ 31.md]] (votes_ 9)
+- **Psalms 6_2** → **Exodus 15_26** [[Exodus ch_ 15.md]] (votes_ 3)
+- **Psalms 6_2** → **Matthew 4_24** [[Matthew ch_ 4.md]] (votes_ 4)
+- **Psalms 6_2** → **Psalms 32_3** [[Psalms ch_ 32.md]] (votes_ 5)
+- **Psalms 6_2** → **Jeremiah 17_14** [[Jeremiah ch_ 17.md]] (votes_ 8)
+- **Psalms 6_2** → **Psalms 30_2** [[Psalms ch_ 30.md]] (votes_ 9)
+- **Psalms 6_2** → **Deuteronomy 32_39** [[Deuteronomy ch_ 32.md]] (votes_ 7)
+- **Psalms 6_2** → **Job 5_18** [[Job ch_ 5.md]] (votes_ 3)
+- **Psalms 6_2** → **Psalms 38_7** [[Psalms ch_ 38.md]] (votes_ 5)
+- **Psalms 6_3** → **Psalms 77_7** [[Psalms ch_ 77.md]] (votes_ 2)
+- **Psalms 6_3** → **Psalms 22_14** [[Psalms ch_ 22.md]] (votes_ 2)
+- **Psalms 6_3** → **Psalms 38_8** [[Psalms ch_ 38.md]] (votes_ 2)
+- **Psalms 6_3** → **Psalms 42_11** [[Psalms ch_ 42.md]] (votes_ 3)
+- **Psalms 6_3** → **John 12_27** [[John ch_ 12.md]] (votes_ 4)
+- **Psalms 6_3** → **Proverbs 18_14** [[Proverbs ch_ 18.md]] (votes_ 2)
+- **Psalms 6_3** → **Matthew 26_38** [[Matthew ch_ 26.md]] (votes_ 2)
+- **Psalms 6_3** → **Luke 18_7** [[Luke ch_ 18.md]] (votes_ 3)
+- **Psalms 6_3** → **Psalms 90_13** [[Psalms ch_ 90.md]] (votes_ 8)
+- **Psalms 6_3** → **Psalms 42_5** [[Psalms ch_ 42.md]] (votes_ 3)
+- **Psalms 6_4** → **Isaiah 38_17** [[Isaiah ch_ 38.md]] (votes_ 2)
+- **Psalms 6_4** → **Psalms 22_20** [[Psalms ch_ 22.md]] (votes_ 3)
+- **Psalms 6_4** → **Psalms 17_13** [[Psalms ch_ 17.md]] (votes_ 4)
+- **Psalms 6_4** → **Psalms 69_13** [[Psalms ch_ 69.md]] (votes_ 2)
+- **Psalms 6_4** → **Psalms 116_4** [[Psalms ch_ 116.md]] (votes_ 3)
+- **Psalms 6_4** → **Psalms 120_2** [[Psalms ch_ 120.md]] (votes_ 2)
+- **Psalms 6_4** → **Psalms 25_7** [[Psalms ch_ 25.md]] (votes_ 2)
+- **Psalms 6_4** → **Ephesians 1_6** [[Ephesians ch_ 1.md]] (votes_ 2)
+- **Psalms 6_4** → **Psalms 86_13** [[Psalms ch_ 86.md]] (votes_ 2)
+- **Psalms 6_4** → **Psalms 121_7** [[Psalms ch_ 121.md]] (votes_ 3)
+- **Psalms 6_4** → **Malachi 3_7** [[Malachi ch_ 3.md]] (votes_ 3)
+- **Psalms 6_4** → **Daniel 9_18** [[Daniel ch_ 9.md]] (votes_ 5)
+- **Psalms 6_4** → **Psalms 116_8** [[Psalms ch_ 116.md]] (votes_ 2)
+- **Psalms 6_4** → **Psalms 80_14** [[Psalms ch_ 80.md]] (votes_ 3)
+- **Psalms 6_4** → **Psalms 90_13** [[Psalms ch_ 90.md]] (votes_ 3)
+- **Psalms 6_5** → **Psalms 115_17** [[Psalms ch_ 115.md]] (votes_ 24)
+- **Psalms 6_5** → **Psalms 30_9** [[Psalms ch_ 30.md]] (votes_ 19)
+- **Psalms 6_5** → **Ecclesiastes 9_10** [[Ecclesiastes ch_ 9.md]] (votes_ 22)
+- **Psalms 6_5** → **John 9_4** [[John ch_ 9.md]] (votes_ 4)
+- **Psalms 6_5** → **Psalms 118_17** [[Psalms ch_ 118.md]] (votes_ 8)
+- **Psalms 6_6** → **Psalms 88_9** [[Psalms ch_ 88.md]] (votes_ 2)
+- **Psalms 6_6** → **Job 23_2** [[Job ch_ 23.md]] (votes_ 3)
+- **Psalms 6_6** → **Psalms 69_3** [[Psalms ch_ 69.md]] (votes_ 6)
+- **Psalms 6_6** → **Lamentations 2_11** [[Lamentations ch_ 2.md]] (votes_ 3)
+- **Psalms 6_6** → **Psalms 39_12** [[Psalms ch_ 39.md]] (votes_ 2)
+- **Psalms 6_6** → **Psalms 38_9** [[Psalms ch_ 38.md]] (votes_ 6)
+- **Psalms 6_6** → **Lamentations 1_16** [[Lamentations ch_ 1.md]] (votes_ 3)
+- **Psalms 6_6** → **Job 10_1** [[Job ch_ 10.md]] (votes_ 2)
+- **Psalms 6_6** → **Lamentations 1_2** [[Lamentations ch_ 1.md]] (votes_ 3)
+- **Psalms 6_6** → **Jeremiah 14_17** [[Jeremiah ch_ 14.md]] (votes_ 2)
+- **Psalms 6_6** → **Psalms 42_3** [[Psalms ch_ 42.md]] (votes_ 6)
+- **Psalms 6_6** → **Luke 7_38** [[Luke ch_ 7.md]] (votes_ 2)
+- **Psalms 6_6** → **Job 16_20** [[Job ch_ 16.md]] (votes_ 3)
+- **Psalms 6_6** → **Job 7_3** [[Job ch_ 7.md]] (votes_ 3)
+- **Psalms 6_7** → **Psalms 88_9** [[Psalms ch_ 88.md]] (votes_ 3)
+- **Psalms 6_7** → **Lamentations 5_17** [[Lamentations ch_ 5.md]] (votes_ 3)
+- **Psalms 6_7** → **Psalms 32_3** [[Psalms ch_ 32.md]] (votes_ 2)
+- **Psalms 6_7** → **Psalms 38_10** [[Psalms ch_ 38.md]] (votes_ 4)
+- **Psalms 6_7** → **Job 17_7** [[Job ch_ 17.md]] (votes_ 4)
+- **Psalms 6_8** → **Psalms 145_18** [[Psalms ch_ 145.md]] (votes_ 12)
+- **Psalms 6_8** → **Psalms 119_115** [[Psalms ch_ 119.md]] (votes_ 12)
+- **Psalms 6_8** → **Matthew 25_41** [[Matthew ch_ 25.md]] (votes_ 8)
+- **Psalms 6_8** → **Isaiah 38_3** [[Isaiah ch_ 38.md]] (votes_ 5)
+- **Psalms 6_8** → **Psalms 56_8** [[Psalms ch_ 56.md]] (votes_ 5)
+- **Psalms 6_8** → **Psalms 116_8** [[Psalms ch_ 116.md]] (votes_ 6)
+- **Psalms 6_8** → **Matthew 7_23** [[Matthew ch_ 7.md]] (votes_ 9)
+- **Psalms 6_8** → **Isaiah 38_5** [[Isaiah ch_ 38.md]] (votes_ 5)
+- **Psalms 6_8** → **Psalms 139_19** [[Psalms ch_ 139.md]] (votes_ 7)
+- **Psalms 6_8** → **Isaiah 30_19** [[Isaiah ch_ 30.md]] (votes_ 6)
+- **Psalms 6_8** → **Psalms 3_4** [[Psalms ch_ 3.md]] (votes_ 9)
+- **Psalms 6_8** → **Hebrews 5_7** [[Hebrews ch_ 5.md]] (votes_ 8)
+- **Psalms 6_8** → **Luke 13_27** [[Luke ch_ 13.md]] (votes_ 14)
+- **Psalms 6_9** → **Jonah 2_7** [[Jonah ch_ 2.md]] (votes_ 5)
+- **Psalms 6_9** → **Jonah 2_2** [[Jonah ch_ 2.md]] (votes_ 3)
+- **Psalms 6_9** → **Psalms 3_4** [[Psalms ch_ 3.md]] (votes_ 3)
+- **Psalms 6_9** → **Psalms 138_3** [[Psalms ch_ 138.md]] (votes_ 5)
+- **Psalms 6_9** → **Psalms 31_22** [[Psalms ch_ 31.md]] (votes_ 2)
+- **Psalms 6_9** → **Psalms 120_1** [[Psalms ch_ 120.md]] (votes_ 13)
+- **Psalms 6_9** → **Psalms 118_5** [[Psalms ch_ 118.md]] (votes_ 6)
+- **Psalms 6_10** → **Psalms 112_10** [[Psalms ch_ 112.md]] (votes_ 3)
+- **Psalms 6_10** → **Job 6_29** [[Job ch_ 6.md]] (votes_ 2)
+- **Psalms 6_10** → **Psalms 73_19** [[Psalms ch_ 73.md]] (votes_ 3)
+- **Psalms 6_10** → **Isaiah 26_11** [[Isaiah ch_ 26.md]] (votes_ 3)
+- **Psalms 6_10** → **Psalms 35_26** [[Psalms ch_ 35.md]] (votes_ 3)
+- **Psalms 6_10** → **Psalms 71_13** [[Psalms ch_ 71.md]] (votes_ 3)
+- **Psalms 6_10** → **Proverbs 29_1** [[Proverbs ch_ 29.md]] (votes_ 3)
+- **Psalms 6_10** → **1 Thessalonians 5_3** [[1 Thessalonians ch_ 5.md]] (votes_ 2)
+- **Psalms 6_10** → **Psalms 71_24** [[Psalms ch_ 71.md]] (votes_ 3)
+- **Psalms 6_10** → **Psalms 25_3** [[Psalms ch_ 25.md]] (votes_ 3)
+- **Psalms 6_10** → **Malachi 3_18** [[Malachi ch_ 3.md]] (votes_ 6)
+- **Psalms 6_10** → **Psalms 132_18** [[Psalms ch_ 132.md]] (votes_ 3)
+- **Psalms 6_10** → **Jeremiah 20_11** [[Jeremiah ch_ 20.md]] (votes_ 6)
+- **Psalms 6_10** → **Psalms 7_6** [[Psalms ch_ 7.md]] (votes_ 3)
+- **Psalms 6_10** → **Psalms 5_10** [[Psalms ch_ 5.md]] (votes_ 2)
+- **Psalms 6_10** → **Psalms 86_17** [[Psalms ch_ 86.md]] (votes_ 6)
+- **Psalms 6_10** → **Psalms 2_5** [[Psalms ch_ 2.md]] (votes_ 2)

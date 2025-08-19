@@ -1,0 +1,335 @@
+# Daniel 3
+
+**1** ¶ Nebuchadnezzar the king made an image of gold, whose height [was] threescore cubits, [and] the breadth thereof six cubits_ he set it up in the plain of Dura, in the province of Babylon.
+
+**2** Then Nebuchadnezzar the king sent to gather together the princes, the governors, and the captains, the judges, the treasurers, the counsellors, the sheriffs, and all the rulers of the provinces, to come to the dedication of the image which Nebuchadnezzar the king had set up.
+
+**3** Then the princes, the governors, and captains, the judges, the treasurers, the counsellors, the sheriffs, and all the rulers of the provinces, were gathered together unto the dedication of the image that Nebuchadnezzar the king had set up; and they stood before the image that Nebuchadnezzar had set up.
+
+**4** Then an herald cried aloud, To you it is commanded, O people, nations, and languages,
+
+**5** [That] at what time ye hear the sound of the cornet, flute, harp, sackbut, psaltery, dulcimer, and all kinds of musick, ye fall down and worship the golden image that Nebuchadnezzar the king hath set up_
+
+**6** And whoso falleth not down and worshippeth shall the same hour be cast into the midst of a burning fiery furnace.
+
+**7** Therefore at that time, when all the people heard the sound of the cornet, flute, harp, sackbut, psaltery, and all kinds of musick, all the people, the nations, and the languages, fell down [and] worshipped the golden image that Nebuchadnezzar the king had set up.
+
+**8** ¶ Wherefore at that time certain Chaldeans came near, and accused the Jews.
+
+**9** They spake and said to the king Nebuchadnezzar, O king, live for ever.
+
+**10** Thou, O king, hast made a decree, that every man that shall hear the sound of the cornet, flute, harp, sackbut, psaltery, and dulcimer, and all kinds of musick, shall fall down and worship the golden image_
+
+**11** And whoso falleth not down and worshippeth, [that] he should be cast into the midst of a burning fiery furnace.
+
+**12** There are certain Jews whom thou hast set over the affairs of the province of Babylon, Shadrach, Meshach, and Abednego; these men, O king, have not regarded thee_ they serve not thy gods, nor worship the golden image which thou hast set up.
+
+**13** Then Nebuchadnezzar in [his] rage and fury commanded to bring Shadrach, Meshach, and Abednego. Then they brought these men before the king.
+
+**14** Nebuchadnezzar spake and said unto them, [Is it] true, O Shadrach, Meshach, and Abednego, do not ye serve my gods, nor worship the golden image which I have set up?
+
+**15** Now if ye be ready that at what time ye hear the sound of the cornet, flute, harp, sackbut, psaltery, and dulcimer, and all kinds of musick, ye fall down and worship the image which I have made; [well]_ but if ye worship not, ye shall be cast the same hour into the midst of a burning fiery furnace; and who [is] that God that shall deliver you out of my hands?
+
+**16** Shadrach, Meshach, and Abednego, answered and said to the king, O Nebuchadnezzar, we [are] not careful to answer thee in this matter.
+
+**17** If it be [so], our God whom we serve is able to deliver us from the burning fiery furnace, and he will deliver [us] out of thine hand, O king.
+
+**18** But if not, be it known unto thee, O king, that we will not serve thy gods, nor worship the golden image which thou hast set up.
+
+**19** ¶ Then was Nebuchadnezzar full of fury, and the form of his visage was changed against Shadrach, Meshach, and Abednego_ [therefore] he spake, and commanded that they should heat the furnace one seven times more than it was wont to be heated.
+
+**20** And he commanded the most mighty men that [were] in his army to bind Shadrach, Meshach, and Abednego, [and] to cast [them] into the burning fiery furnace.
+
+**21** Then these men were bound in their coats, their hosen, and their hats, and their [other] garments, and were cast into the midst of the burning fiery furnace.
+
+**22** Therefore because the king's commandment was urgent, and the furnace exceeding hot, the flame of the fire slew those men that took up Shadrach, Meshach, and Abednego.
+
+**23** And these three men, Shadrach, Meshach, and Abednego, fell down bound into the midst of the burning fiery furnace.
+
+**24** Then Nebuchadnezzar the king was astonied, and rose up in haste, [and] spake, and said unto his counsellors, Did not we cast three men bound into the midst of the fire? They answered and said unto the king, True, O king.
+
+**25** He answered and said, Lo, I see four men loose, walking in the midst of the fire, and they have no hurt; and the form of the fourth is like the Son of God.
+
+**26** Then Nebuchadnezzar came near to the mouth of the burning fiery furnace, [and] spake, and said, Shadrach, Meshach, and Abednego, ye servants of the most high God, come forth, and come [hither]. Then Shadrach, Meshach, and Abednego, came forth of the midst of the fire.
+
+**27** And the princes, governors, and captains, and the king's counsellors, being gathered together, saw these men, upon whose bodies the fire had no power, nor was an hair of their head singed, neither were their coats changed, nor the smell of fire had passed on them.
+
+**28** ¶ [Then] Nebuchadnezzar spake, and said, Blessed [be] the God of Shadrach, Meshach, and Abednego, who hath sent his angel, and delivered his servants that trusted in him, and have changed the king's word, and yielded their bodies, that they might not serve nor worship any god, except their own God.
+
+**29** Therefore I make a decree, That every people, nation, and language, which speak any thing amiss against the God of Shadrach, Meshach, and Abednego, shall be cut in pieces, and their houses shall be made a dunghill_ because there is no other God that can deliver after this sort.
+
+**30** Then the king promoted Shadrach, Meshach, and Abednego, in the province of Babylon.
+
+---
+
+## Cross-References
+
+- **Daniel 3_1** → **Acts 19_26** [[Acts ch_ 19.md]] (votes_ 6)
+- **Daniel 3_1** → **Daniel 3_30** [[Daniel ch_ 3.md]] (votes_ 2)
+- **Daniel 3_1** → **Isaiah 2_20** [[Isaiah ch_ 2.md]] (votes_ 4)
+- **Daniel 3_1** → **Daniel 5_23** [[Daniel ch_ 5.md]] (votes_ 3)
+- **Daniel 3_1** → **Acts 17_29** [[Acts ch_ 17.md]] (votes_ 6)
+- **Daniel 3_1** → **Habakkuk 2_19** [[Habakkuk ch_ 2.md]] (votes_ 11)
+- **Daniel 3_1** → **Hosea 8_4** [[Hosea ch_ 8.md]] (votes_ 7)
+- **Daniel 3_1** → **Isaiah 46_6** [[Isaiah ch_ 46.md]] (votes_ 9)
+- **Daniel 3_1** → **1 Kings 12_28** [[1 Kings ch_ 12.md]] (votes_ 4)
+- **Daniel 3_1** → **Daniel 2_48** [[Daniel ch_ 2.md]] (votes_ 3)
+- **Daniel 3_1** → **Deuteronomy 7_25** [[Deuteronomy ch_ 7.md]] (votes_ 3)
+- **Daniel 3_1** → **Exodus 32_31** [[Exodus ch_ 32.md]] (votes_ 3)
+- **Daniel 3_1** → **Exodus 20_23** [[Exodus ch_ 20.md]] (votes_ 3)
+- **Daniel 3_1** → **Jeremiah 10_9** [[Jeremiah ch_ 10.md]] (votes_ 3)
+- **Daniel 3_1** → **Esther 1_1** [[Esther ch_ 1.md]] (votes_ 2)
+- **Daniel 3_1** → **Jeremiah 16_20** [[Jeremiah ch_ 16.md]] (votes_ 10)
+- **Daniel 3_1** → **Revelation 9_20** [[Revelation ch_ 9.md]] (votes_ 2)
+- **Daniel 3_1** → **Isaiah 30_22** [[Isaiah ch_ 30.md]] (votes_ 3)
+- **Daniel 3_1** → **Psalms 135_15** [[Psalms ch_ 135.md]] (votes_ 4)
+- **Daniel 3_2** → **Daniel 3_27** [[Daniel ch_ 3.md]] (votes_ 4)
+- **Daniel 3_2** → **Numbers 25_2** [[Numbers ch_ 25.md]] (votes_ 3)
+- **Daniel 3_2** → **1 Kings 12_32** [[1 Kings ch_ 12.md]] (votes_ 3)
+- **Daniel 3_2** → **Proverbs 29_12** [[Proverbs ch_ 29.md]] (votes_ 3)
+- **Daniel 3_2** → **Judges 16_23** [[Judges ch_ 16.md]] (votes_ 3)
+- **Daniel 3_2** → **Revelation 17_2** [[Revelation ch_ 17.md]] (votes_ 2)
+- **Daniel 3_3** → **Romans 3_11** [[Romans ch_ 3.md]] (votes_ 2)
+- **Daniel 3_3** → **Revelation 17_13** [[Revelation ch_ 17.md]] (votes_ 4)
+- **Daniel 3_3** → **Revelation 17_17** [[Revelation ch_ 17.md]] (votes_ 6)
+- **Daniel 3_4** → **Micah 6_16** [[Micah ch_ 6.md]] (votes_ 4)
+- **Daniel 3_4** → **Isaiah 40_9** [[Isaiah ch_ 40.md]] (votes_ 2)
+- **Daniel 3_4** → **Hosea 5_11** [[Hosea ch_ 5.md]] (votes_ 2)
+- **Daniel 3_4** → **Isaiah 58_1** [[Isaiah ch_ 58.md]] (votes_ 2)
+- **Daniel 3_4** → **Esther 8_9** [[Esther ch_ 8.md]] (votes_ 2)
+- **Daniel 3_4** → **Daniel 4_14** [[Daniel ch_ 4.md]] (votes_ 2)
+- **Daniel 3_4** → **Daniel 4_1** [[Daniel ch_ 4.md]] (votes_ 7)
+- **Daniel 3_4** → **Daniel 6_25** [[Daniel ch_ 6.md]] (votes_ 7)
+- **Daniel 3_5** → **Daniel 3_7** [[Daniel ch_ 3.md]] (votes_ 2)
+- **Daniel 3_5** → **Daniel 3_15** [[Daniel ch_ 3.md]] (votes_ 6)
+- **Daniel 3_5** → **Daniel 3_10** [[Daniel ch_ 3.md]] (votes_ 5)
+- **Daniel 3_6** → **Genesis 19_28** [[Genesis ch_ 19.md]] (votes_ 2)
+- **Daniel 3_6** → **Daniel 6_7** [[Daniel ch_ 6.md]] (votes_ 2)
+- **Daniel 3_6** → **Daniel 3_15** [[Daniel ch_ 3.md]] (votes_ 4)
+- **Daniel 3_6** → **Isaiah 44_17** [[Isaiah ch_ 44.md]] (votes_ 2)
+- **Daniel 3_6** → **Matthew 13_50** [[Matthew ch_ 13.md]] (votes_ 8)
+- **Daniel 3_6** → **Revelation 9_2** [[Revelation ch_ 9.md]] (votes_ 3)
+- **Daniel 3_6** → **Jeremiah 29_22** [[Jeremiah ch_ 29.md]] (votes_ 7)
+- **Daniel 3_6** → **Revelation 14_11** [[Revelation ch_ 14.md]] (votes_ 3)
+- **Daniel 3_6** → **Matthew 4_9** [[Matthew ch_ 4.md]] (votes_ 2)
+- **Daniel 3_6** → **Daniel 2_5** [[Daniel ch_ 2.md]] (votes_ 2)
+- **Daniel 3_6** → **Mark 6_27** [[Mark ch_ 6.md]] (votes_ 2)
+- **Daniel 3_6** → **Matthew 13_42** [[Matthew ch_ 13.md]] (votes_ 8)
+- **Daniel 3_6** → **Daniel 3_11** [[Daniel ch_ 3.md]] (votes_ 4)
+- **Daniel 3_6** → **Exodus 20_5** [[Exodus ch_ 20.md]] (votes_ 2)
+- **Daniel 3_6** → **Daniel 3_21** [[Daniel ch_ 3.md]] (votes_ 2)
+- **Daniel 3_7** → **Revelation 13_14** [[Revelation ch_ 13.md]] (votes_ 3)
+- **Daniel 3_7** → **Revelation 13_8** [[Revelation ch_ 13.md]] (votes_ 3)
+- **Daniel 3_7** → **Jeremiah 51_7** [[Jeremiah ch_ 51.md]] (votes_ 3)
+- **Daniel 3_7** → **Revelation 13_3** [[Revelation ch_ 13.md]] (votes_ 3)
+- **Daniel 3_7** → **Revelation 12_9** [[Revelation ch_ 12.md]] (votes_ 3)
+- **Daniel 3_7** → **Revelation 19_20** [[Revelation ch_ 19.md]] (votes_ 3)
+- **Daniel 3_7** → **Acts 14_16** [[Acts ch_ 14.md]] (votes_ 2)
+- **Daniel 3_7** → **Revelation 17_8** [[Revelation ch_ 17.md]] (votes_ 3)
+- **Daniel 3_7** → **1 John 5_19** [[1 John ch_ 5.md]] (votes_ 3)
+- **Daniel 3_8** → **Daniel 2_10** [[Daniel ch_ 2.md]] (votes_ 2)
+- **Daniel 3_8** → **Esther 3_6** [[Esther ch_ 3.md]] (votes_ 2)
+- **Daniel 3_8** → **Acts 28_22** [[Acts ch_ 28.md]] (votes_ 2)
+- **Daniel 3_9** → **Daniel 6_21** [[Daniel ch_ 6.md]] (votes_ 3)
+- **Daniel 3_9** → **Daniel 2_4** [[Daniel ch_ 2.md]] (votes_ 3)
+- **Daniel 3_9** → **Romans 13_7** [[Romans ch_ 13.md]] (votes_ 2)
+- **Daniel 3_9** → **Daniel 6_6** [[Daniel ch_ 6.md]] (votes_ 4)
+- **Daniel 3_9** → **Daniel 5_10** [[Daniel ch_ 5.md]] (votes_ 4)
+- **Daniel 3_10** → **Psalms 94_20** [[Psalms ch_ 94.md]] (votes_ 2)
+- **Daniel 3_10** → **Daniel 6_12** [[Daniel ch_ 6.md]] (votes_ 4)
+- **Daniel 3_10** → **Ecclesiastes 3_16** [[Ecclesiastes ch_ 3.md]] (votes_ 2)
+- **Daniel 3_10** → **1 Chronicles 15_16** [[1 Chronicles ch_ 15.md]] (votes_ 2)
+- **Daniel 3_10** → **2 Chronicles 29_25** [[2 Chronicles ch_ 29.md]] (votes_ 2)
+- **Daniel 3_10** → **Exodus 1_16** [[Exodus ch_ 1.md]] (votes_ 2)
+- **Daniel 3_10** → **Daniel 3_15** [[Daniel ch_ 3.md]] (votes_ 2)
+- **Daniel 3_10** → **Exodus 1_22** [[Exodus ch_ 1.md]] (votes_ 2)
+- **Daniel 3_10** → **Isaiah 10_1** [[Isaiah ch_ 10.md]] (votes_ 2)
+- **Daniel 3_10** → **John 11_57** [[John ch_ 11.md]] (votes_ 2)
+- **Daniel 3_10** → **Amos 6_5** [[Amos ch_ 6.md]] (votes_ 2)
+- **Daniel 3_10** → **1 Chronicles 15_28** [[1 Chronicles ch_ 15.md]] (votes_ 2)
+- **Daniel 3_12** → **Acts 17_7** [[Acts ch_ 17.md]] (votes_ 4)
+- **Daniel 3_12** → **Esther 3_8** [[Esther ch_ 3.md]] (votes_ 2)
+- **Daniel 3_12** → **Daniel 2_49** [[Daniel ch_ 2.md]] (votes_ 5)
+- **Daniel 3_12** → **Ecclesiastes 4_4** [[Ecclesiastes ch_ 4.md]] (votes_ 2)
+- **Daniel 3_12** → **Proverbs 27_4** [[Proverbs ch_ 27.md]] (votes_ 3)
+- **Daniel 3_12** → **Daniel 6_13** [[Daniel ch_ 6.md]] (votes_ 7)
+- **Daniel 3_12** → **Acts 5_28** [[Acts ch_ 5.md]] (votes_ 2)
+- **Daniel 3_13** → **Daniel 3_19** [[Daniel ch_ 3.md]] (votes_ 5)
+- **Daniel 3_13** → **Acts 24_24** [[Acts ch_ 24.md]] (votes_ 2)
+- **Daniel 3_13** → **Luke 21_12** [[Luke ch_ 21.md]] (votes_ 2)
+- **Daniel 3_13** → **Luke 6_11** [[Luke ch_ 6.md]] (votes_ 2)
+- **Daniel 3_13** → **Daniel 2_12** [[Daniel ch_ 2.md]] (votes_ 4)
+- **Daniel 3_13** → **Matthew 10_18** [[Matthew ch_ 10.md]] (votes_ 2)
+- **Daniel 3_13** → **Mark 13_9** [[Mark ch_ 13.md]] (votes_ 2)
+- **Daniel 3_13** → **Genesis 4_5** [[Genesis ch_ 4.md]] (votes_ 2)
+- **Daniel 3_13** → **Proverbs 27_3** [[Proverbs ch_ 27.md]] (votes_ 2)
+- **Daniel 3_13** → **Proverbs 29_22** [[Proverbs ch_ 29.md]] (votes_ 2)
+- **Daniel 3_13** → **Proverbs 17_12** [[Proverbs ch_ 17.md]] (votes_ 2)
+- **Daniel 3_14** → **Daniel 4_8** [[Daniel ch_ 4.md]] (votes_ 3)
+- **Daniel 3_14** → **Daniel 3_1** [[Daniel ch_ 3.md]] (votes_ 5)
+- **Daniel 3_14** → **Isaiah 46_1** [[Isaiah ch_ 46.md]] (votes_ 4)
+- **Daniel 3_14** → **Jeremiah 50_2** [[Jeremiah ch_ 50.md]] (votes_ 6)
+- **Daniel 3_15** → **Acts 5_29** [[Acts ch_ 5.md]] (votes_ 9)
+- **Daniel 3_15** → **Isaiah 37_23** [[Isaiah ch_ 37.md]] (votes_ 3)
+- **Daniel 3_15** → **Daniel 3_17** [[Daniel ch_ 3.md]] (votes_ 6)
+- **Daniel 3_15** → **Acts 6_15** [[Acts ch_ 6.md]] (votes_ 3)
+- **Daniel 3_15** → **Luke 12_11** [[Luke ch_ 12.md]] (votes_ 3)
+- **Daniel 3_15** → **Luke 13_9** [[Luke ch_ 13.md]] (votes_ 3)
+- **Daniel 3_15** → **2 Kings 18_35** [[2 Kings ch_ 18.md]] (votes_ 6)
+- **Daniel 3_15** → **Matthew 10_19** [[Matthew ch_ 10.md]] (votes_ 2)
+- **Daniel 3_15** → **Acts 4_19** [[Acts ch_ 4.md]] (votes_ 4)
+- **Daniel 3_15** → **Daniel 6_16** [[Daniel ch_ 6.md]] (votes_ 4)
+- **Daniel 3_15** → **Mark 13_11** [[Mark ch_ 13.md]] (votes_ 4)
+- **Daniel 3_15** → **Daniel 6_20** [[Daniel ch_ 6.md]] (votes_ 3)
+- **Daniel 3_15** → **Matthew 27_43** [[Matthew ch_ 27.md]] (votes_ 2)
+- **Daniel 3_15** → **Exodus 32_32** [[Exodus ch_ 32.md]] (votes_ 3)
+- **Daniel 3_15** → **Exodus 5_2** [[Exodus ch_ 5.md]] (votes_ 6)
+- **Daniel 3_16** → **Daniel 1_7** [[Daniel ch_ 1.md]] (votes_ 4)
+- **Daniel 3_16** → **Daniel 3_12** [[Daniel ch_ 3.md]] (votes_ 3)
+- **Daniel 3_17** → **1 Samuel 17_46** [[1 Samuel ch_ 17.md]] (votes_ 8)
+- **Daniel 3_17** → **1 Samuel 17_37** [[1 Samuel ch_ 17.md]] (votes_ 8)
+- **Daniel 3_17** → **Daniel 4_35** [[Daniel ch_ 4.md]] (votes_ 8)
+- **Daniel 3_17** → **Isaiah 54_14** [[Isaiah ch_ 54.md]] (votes_ 5)
+- **Daniel 3_17** → **Jeremiah 1_8** [[Jeremiah ch_ 1.md]] (votes_ 16)
+- **Daniel 3_17** → **Job 5_19** [[Job ch_ 5.md]] (votes_ 11)
+- **Daniel 3_17** → **Romans 8_31** [[Romans ch_ 8.md]] (votes_ 24)
+- **Daniel 3_17** → **Isaiah 12_2** [[Isaiah ch_ 12.md]] (votes_ 10)
+- **Daniel 3_17** → **Acts 21_13** [[Acts ch_ 21.md]] (votes_ 13)
+- **Daniel 3_17** → **Genesis 17_1** [[Genesis ch_ 17.md]] (votes_ 3)
+- **Daniel 3_17** → **Luke 1_37** [[Luke ch_ 1.md]] (votes_ 22)
+- **Daniel 3_17** → **Genesis 18_14** [[Genesis ch_ 18.md]] (votes_ 8)
+- **Daniel 3_17** → **Psalms 115_3** [[Psalms ch_ 115.md]] (votes_ 10)
+- **Daniel 3_17** → **Hebrews 7_25** [[Hebrews ch_ 7.md]] (votes_ 17)
+- **Daniel 3_17** → **Psalms 73_20** [[Psalms ch_ 73.md]] (votes_ 3)
+- **Daniel 3_17** → **Acts 20_24** [[Acts ch_ 20.md]] (votes_ 9)
+- **Daniel 3_17** → **Job 34_29** [[Job ch_ 34.md]] (votes_ 6)
+- **Daniel 3_17** → **Daniel 6_27** [[Daniel ch_ 6.md]] (votes_ 9)
+- **Daniel 3_18** → **Acts 4_19** [[Acts ch_ 4.md]] (votes_ 4)
+- **Daniel 3_18** → **Job 13_15** [[Job ch_ 13.md]] (votes_ 4)
+- **Daniel 3_18** → **Proverbs 28_1** [[Proverbs ch_ 28.md]] (votes_ 6)
+- **Daniel 3_18** → **Matthew 10_28** [[Matthew ch_ 10.md]] (votes_ 3)
+- **Daniel 3_18** → **Matthew 10_39** [[Matthew ch_ 10.md]] (votes_ 11)
+- **Daniel 3_18** → **Leviticus 19_4** [[Leviticus ch_ 19.md]] (votes_ 4)
+- **Daniel 3_18** → **Daniel 3_28** [[Daniel ch_ 3.md]] (votes_ 6)
+- **Daniel 3_18** → **Matthew 16_2** [[Matthew ch_ 16.md]] (votes_ 0)
+- **Daniel 3_18** → **Joshua 24_15** [[Joshua ch_ 24.md]] (votes_ 6)
+- **Daniel 3_18** → **Revelation 12_11** [[Revelation ch_ 12.md]] (votes_ 6)
+- **Daniel 3_19** → **Daniel 6_24** [[Daniel ch_ 6.md]] (votes_ 2)
+- **Daniel 3_19** → **Genesis 31_2** [[Genesis ch_ 31.md]] (votes_ 2)
+- **Daniel 3_19** → **Psalms 76_10** [[Psalms ch_ 76.md]] (votes_ 3)
+- **Daniel 3_19** → **Acts 5_33** [[Acts ch_ 5.md]] (votes_ 3)
+- **Daniel 3_19** → **Acts 7_54** [[Acts ch_ 7.md]] (votes_ 2)
+- **Daniel 3_19** → **Proverbs 21_24** [[Proverbs ch_ 21.md]] (votes_ 4)
+- **Daniel 3_19** → **Esther 7_7** [[Esther ch_ 7.md]] (votes_ 2)
+- **Daniel 3_19** → **Leviticus 26_18** [[Leviticus ch_ 26.md]] (votes_ 3)
+- **Daniel 3_19** → **Isaiah 51_23** [[Isaiah ch_ 51.md]] (votes_ 2)
+- **Daniel 3_19** → **Leviticus 26_28** [[Leviticus ch_ 26.md]] (votes_ 4)
+- **Daniel 3_19** → **Proverbs 16_14** [[Proverbs ch_ 16.md]] (votes_ 2)
+- **Daniel 3_19** → **Leviticus 26_21** [[Leviticus ch_ 26.md]] (votes_ 3)
+- **Daniel 3_19** → **Leviticus 26_24** [[Leviticus ch_ 26.md]] (votes_ 6)
+- **Daniel 3_19** → **Daniel 3_13** [[Daniel ch_ 3.md]] (votes_ 7)
+- **Daniel 3_19** → **Daniel 5_6** [[Daniel ch_ 5.md]] (votes_ 3)
+- **Daniel 3_20** → **Daniel 3_15** [[Daniel ch_ 3.md]] (votes_ 3)
+- **Daniel 3_20** → **Acts 16_25** [[Acts ch_ 16.md]] (votes_ 3)
+- **Daniel 3_20** → **Acts 16_23** [[Acts ch_ 16.md]] (votes_ 3)
+- **Daniel 3_22** → **Daniel 6_24** [[Daniel ch_ 6.md]] (votes_ 2)
+- **Daniel 3_22** → **Proverbs 21_18** [[Proverbs ch_ 21.md]] (votes_ 3)
+- **Daniel 3_22** → **Acts 12_19** [[Acts ch_ 12.md]] (votes_ 2)
+- **Daniel 3_22** → **Daniel 2_15** [[Daniel ch_ 2.md]] (votes_ 2)
+- **Daniel 3_22** → **Exodus 12_33** [[Exodus ch_ 12.md]] (votes_ 3)
+- **Daniel 3_22** → **Proverbs 11_8** [[Proverbs ch_ 11.md]] (votes_ 3)
+- **Daniel 3_22** → **Matthew 27_5** [[Matthew ch_ 27.md]] (votes_ 2)
+- **Daniel 3_22** → **Daniel 1_7** [[Daniel ch_ 1.md]] (votes_ 2)
+- **Daniel 3_23** → **2 Corinthians 4_17** [[2 Corinthians ch_ 4.md]] (votes_ 2)
+- **Daniel 3_23** → **Jeremiah 38_6** [[Jeremiah ch_ 38.md]] (votes_ 4)
+- **Daniel 3_23** → **Psalms 34_19** [[Psalms ch_ 34.md]] (votes_ 3)
+- **Daniel 3_24** → **Daniel 5_18** [[Daniel ch_ 5.md]] (votes_ 2)
+- **Daniel 3_24** → **Acts 12_13** [[Acts ch_ 12.md]] (votes_ 2)
+- **Daniel 3_24** → **Acts 9_6** [[Acts ch_ 9.md]] (votes_ 2)
+- **Daniel 3_24** → **Acts 26_13** [[Acts ch_ 26.md]] (votes_ 2)
+- **Daniel 3_24** → **Daniel 4_22** [[Daniel ch_ 4.md]] (votes_ 2)
+- **Daniel 3_24** → **Daniel 6_22** [[Daniel ch_ 6.md]] (votes_ 3)
+- **Daniel 3_24** → **Acts 26_27** [[Acts ch_ 26.md]] (votes_ 2)
+- **Daniel 3_24** → **Daniel 6_7** [[Daniel ch_ 6.md]] (votes_ 3)
+- **Daniel 3_24** → **Daniel 3_17** [[Daniel ch_ 3.md]] (votes_ 2)
+- **Daniel 3_24** → **Daniel 5_6** [[Daniel ch_ 5.md]] (votes_ 2)
+- **Daniel 3_24** → **Daniel 4_27** [[Daniel ch_ 4.md]] (votes_ 2)
+- **Daniel 3_24** → **1 Samuel 17_55** [[1 Samuel ch_ 17.md]] (votes_ 2)
+- **Daniel 3_25** → **Romans 1_4** [[Romans ch_ 1.md]] (votes_ 5)
+- **Daniel 3_25** → **Luke 1_35** [[Luke ch_ 1.md]] (votes_ 4)
+- **Daniel 3_25** → **Isaiah 43_2** [[Isaiah ch_ 43.md]] (votes_ 27)
+- **Daniel 3_25** → **Acts 28_5** [[Acts ch_ 28.md]] (votes_ 13)
+- **Daniel 3_25** → **Psalms 34_7** [[Psalms ch_ 34.md]] (votes_ 8)
+- **Daniel 3_25** → **Job 38_7** [[Job ch_ 38.md]] (votes_ 6)
+- **Daniel 3_25** → **1 Peter 3_13** [[1 Peter ch_ 3.md]] (votes_ 7)
+- **Daniel 3_25** → **Mark 16_18** [[Mark ch_ 16.md]] (votes_ 11)
+- **Daniel 3_25** → **Daniel 3_28** [[Daniel ch_ 3.md]] (votes_ 8)
+- **Daniel 3_25** → **Proverbs 30_4** [[Proverbs ch_ 30.md]] (votes_ 4)
+- **Daniel 3_25** → **Daniel 3_18** [[Daniel ch_ 3.md]] (votes_ 6)
+- **Daniel 3_25** → **Job 1_6** [[Job ch_ 1.md]] (votes_ 9)
+- **Daniel 3_26** → **Joshua 4_10** [[Joshua ch_ 4.md]] (votes_ 3)
+- **Daniel 3_26** → **Acts 27_23** [[Acts ch_ 27.md]] (votes_ 2)
+- **Daniel 3_26** → **Genesis 14_18** [[Genesis ch_ 14.md]] (votes_ 3)
+- **Daniel 3_26** → **Daniel 4_2** [[Daniel ch_ 4.md]] (votes_ 4)
+- **Daniel 3_26** → **Daniel 2_47** [[Daniel ch_ 2.md]] (votes_ 3)
+- **Daniel 3_26** → **Acts 16_37** [[Acts ch_ 16.md]] (votes_ 2)
+- **Daniel 3_26** → **Ezra 5_11** [[Ezra ch_ 5.md]] (votes_ 2)
+- **Daniel 3_26** → **Joshua 3_17** [[Joshua ch_ 3.md]] (votes_ 3)
+- **Daniel 3_26** → **Daniel 6_20** [[Daniel ch_ 6.md]] (votes_ 2)
+- **Daniel 3_26** → **Galatians 1_10** [[Galatians ch_ 1.md]] (votes_ 3)
+- **Daniel 3_26** → **Isaiah 28_16** [[Isaiah ch_ 28.md]] (votes_ 2)
+- **Daniel 3_26** → **Isaiah 52_12** [[Isaiah ch_ 52.md]] (votes_ 4)
+- **Daniel 3_26** → **Acts 16_17** [[Acts ch_ 16.md]] (votes_ 3)
+- **Daniel 3_26** → **Revelation 19_5** [[Revelation ch_ 19.md]] (votes_ 4)
+- **Daniel 3_26** → **Daniel 3_17** [[Daniel ch_ 3.md]] (votes_ 6)
+- **Daniel 3_27** → **Hebrews 11_34** [[Hebrews ch_ 11.md]] (votes_ 8)
+- **Daniel 3_27** → **2 Kings 19_19** [[2 Kings ch_ 19.md]] (votes_ 3)
+- **Daniel 3_27** → **Isaiah 43_2** [[Isaiah ch_ 43.md]] (votes_ 10)
+- **Daniel 3_27** → **Psalms 83_18** [[Psalms ch_ 83.md]] (votes_ 3)
+- **Daniel 3_27** → **Acts 26_26** [[Acts ch_ 26.md]] (votes_ 1)
+- **Daniel 3_27** → **Acts 27_34** [[Acts ch_ 27.md]] (votes_ 4)
+- **Daniel 3_27** → **Isaiah 26_11** [[Isaiah ch_ 26.md]] (votes_ 5)
+- **Daniel 3_27** → **Daniel 3_21** [[Daniel ch_ 3.md]] (votes_ 2)
+- **Daniel 3_27** → **Matthew 10_30** [[Matthew ch_ 10.md]] (votes_ 4)
+- **Daniel 3_28** → **Isaiah 37_36** [[Isaiah ch_ 37.md]] (votes_ 3)
+- **Daniel 3_28** → **Psalms 33_18** [[Psalms ch_ 33.md]] (votes_ 2)
+- **Daniel 3_28** → **Daniel 3_25** [[Daniel ch_ 3.md]] (votes_ 5)
+- **Daniel 3_28** → **Revelation 12_11** [[Revelation ch_ 12.md]] (votes_ 8)
+- **Daniel 3_28** → **1 Chronicles 5_20** [[1 Chronicles ch_ 5.md]] (votes_ 3)
+- **Daniel 3_28** → **Ezra 1_3** [[Ezra ch_ 1.md]] (votes_ 2)
+- **Daniel 3_28** → **Genesis 9_26** [[Genesis ch_ 9.md]] (votes_ 2)
+- **Daniel 3_28** → **1 Peter 1_21** [[1 Peter ch_ 1.md]] (votes_ 2)
+- **Daniel 3_28** → **Daniel 4_34** [[Daniel ch_ 4.md]] (votes_ 2)
+- **Daniel 3_28** → **2 Chronicles 20_20** [[2 Chronicles ch_ 20.md]] (votes_ 3)
+- **Daniel 3_28** → **Daniel 6_26** [[Daniel ch_ 6.md]] (votes_ 2)
+- **Daniel 3_28** → **Acts 5_19** [[Acts ch_ 5.md]] (votes_ 5)
+- **Daniel 3_28** → **Philippians 1_20** [[Philippians ch_ 1.md]] (votes_ 3)
+- **Daniel 3_28** → **Exodus 20_5** [[Exodus ch_ 20.md]] (votes_ 9)
+- **Daniel 3_28** → **Hebrews 11_37** [[Hebrews ch_ 11.md]] (votes_ 2)
+- **Daniel 3_28** → **Psalms 34_22** [[Psalms ch_ 34.md]] (votes_ 2)
+- **Daniel 3_28** → **Romans 12_1** [[Romans ch_ 12.md]] (votes_ 6)
+- **Daniel 3_28** → **Matthew 4_10** [[Matthew ch_ 4.md]] (votes_ 5)
+- **Daniel 3_28** → **2 Chronicles 32_21** [[2 Chronicles ch_ 32.md]] (votes_ 3)
+- **Daniel 3_28** → **Acts 4_19** [[Acts ch_ 4.md]] (votes_ 2)
+- **Daniel 3_28** → **Psalms 103_20** [[Psalms ch_ 103.md]] (votes_ 1)
+- **Daniel 3_28** → **Psalms 62_8** [[Psalms ch_ 62.md]] (votes_ 3)
+- **Daniel 3_28** → **Daniel 2_47** [[Daniel ch_ 2.md]] (votes_ 4)
+- **Daniel 3_28** → **Psalms 33_21** [[Psalms ch_ 33.md]] (votes_ 2)
+- **Daniel 3_28** → **Hebrews 1_14** [[Hebrews ch_ 1.md]] (votes_ 2)
+- **Daniel 3_28** → **Psalms 147_11** [[Psalms ch_ 147.md]] (votes_ 6)
+- **Daniel 3_28** → **Ezra 6_11** [[Ezra ch_ 6.md]] (votes_ 2)
+- **Daniel 3_29** → **Psalms 76_10** [[Psalms ch_ 76.md]] (votes_ 2)
+- **Daniel 3_29** → **Deuteronomy 32_31** [[Deuteronomy ch_ 32.md]] (votes_ 2)
+- **Daniel 3_29** → **Daniel 3_15** [[Daniel ch_ 3.md]] (votes_ 1)
+- **Daniel 3_29** → **Daniel 3_28** [[Daniel ch_ 3.md]] (votes_ 1)
+- **Daniel 3_29** → **Psalms 3_8** [[Psalms ch_ 3.md]] (votes_ 1)
+- **Daniel 3_29** → **Daniel 3_17** [[Daniel ch_ 3.md]] (votes_ 1)
+- **Daniel 3_29** → **Ezra 6_11** [[Ezra ch_ 6.md]] (votes_ 1)
+- **Daniel 3_29** → **Daniel 2_5** [[Daniel ch_ 2.md]] (votes_ 3)
+- **Daniel 3_30** → **1 Samuel 2_30** [[1 Samuel ch_ 2.md]] (votes_ 3)
+- **Daniel 3_30** → **Psalms 91_14** [[Psalms ch_ 91.md]] (votes_ 2)
+- **Daniel 3_30** → **Psalms 1_3** [[Psalms ch_ 1.md]] (votes_ 2)
+- **Daniel 3_30** → **John 12_26** [[John ch_ 12.md]] (votes_ 2)
+- **Daniel 3_30** → **Daniel 2_49** [[Daniel ch_ 2.md]] (votes_ 3)
+- **Daniel 3_30** → **Daniel 3_12** [[Daniel ch_ 3.md]] (votes_ 2)
+- **Daniel 3_30** → **Romans 8_31** [[Romans ch_ 8.md]] (votes_ 2)

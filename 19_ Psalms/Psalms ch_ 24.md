@@ -1,0 +1,138 @@
+# Psalms 24
+
+**1** ¶ A Psalm of David. The earth [is] the LORD'S, and the fulness thereof; the world, and they that dwell therein.
+
+**2** For he hath founded it upon the seas, and established it upon the floods.
+
+**3** ¶ Who shall ascend into the hill of the LORD? or who shall stand in his holy place?
+
+**4** He that hath clean hands, and a pure heart; who hath not lifted up his soul unto vanity, nor sworn deceitfully.
+
+**5** He shall receive the blessing from the LORD, and righteousness from the God of his salvation.
+
+**6** This [is] the generation of them that seek him, that seek thy face, O Jacob. Selah.
+
+**7** ¶ Lift up your heads, O ye gates; and be ye lift up, ye everlasting doors; and the King of glory shall come in.
+
+**8** Who [is] this King of glory? The LORD strong and mighty, the LORD mighty in battle.
+
+**9** Lift up your heads, O ye gates; even lift [them] up, ye everlasting doors; and the King of glory shall come in.
+
+**10** Who is this King of glory? The LORD of hosts, he [is] the King of glory. Selah.
+
+---
+
+## Cross-References
+
+- **Psalms 24_1** → **1 Corinthians 10_26** [[1 Corinthians ch_ 10.md]] (votes_ 79)
+- **Psalms 24_1** → **1 Chronicles 29_11** [[1 Chronicles ch_ 29.md]] (votes_ 73)
+- **Psalms 24_1** → **Deuteronomy 10_14** [[Deuteronomy ch_ 10.md]] (votes_ 48)
+- **Psalms 24_1** → **Nahum 1_5** [[Nahum ch_ 1.md]] (votes_ 31)
+- **Psalms 24_1** → **Daniel 4_25** [[Daniel ch_ 4.md]] (votes_ 28)
+- **Psalms 24_1** → **Job 41_11** [[Job ch_ 41.md]] (votes_ 55)
+- **Psalms 24_1** → **Psalms 50_12** [[Psalms ch_ 50.md]] (votes_ 31)
+- **Psalms 24_1** → **Psalms 89_11** [[Psalms ch_ 89.md]] (votes_ 84)
+- **Psalms 24_1** → **Psalms 98_7** [[Psalms ch_ 98.md]] (votes_ 18)
+- **Psalms 24_1** → **Exodus 9_29** [[Exodus ch_ 9.md]] (votes_ 45)
+- **Psalms 24_1** → **Exodus 19_5** [[Exodus ch_ 19.md]] (votes_ 38)
+- **Psalms 24_2** → **Psalms 33_6** [[Psalms ch_ 33.md]] (votes_ 4)
+- **Psalms 24_2** → **Genesis 8_22** [[Genesis ch_ 8.md]] (votes_ 4)
+- **Psalms 24_2** → **Psalms 93_1** [[Psalms ch_ 93.md]] (votes_ 3)
+- **Psalms 24_2** → **Psalms 96_10** [[Psalms ch_ 96.md]] (votes_ 5)
+- **Psalms 24_2** → **Psalms 136_6** [[Psalms ch_ 136.md]] (votes_ 9)
+- **Psalms 24_2** → **Jeremiah 5_22** [[Jeremiah ch_ 5.md]] (votes_ 9)
+- **Psalms 24_2** → **Psalms 95_4** [[Psalms ch_ 95.md]] (votes_ 3)
+- **Psalms 24_2** → **Job 38_4** [[Job ch_ 38.md]] (votes_ 5)
+- **Psalms 24_3** → **Leviticus 10_3** [[Leviticus ch_ 10.md]] (votes_ 9)
+- **Psalms 24_3** → **Psalms 68_18** [[Psalms ch_ 68.md]] (votes_ 11)
+- **Psalms 24_3** → **Hebrews 12_28** [[Hebrews ch_ 12.md]] (votes_ 19)
+- **Psalms 24_3** → **1 Chronicles 15_1** [[1 Chronicles ch_ 15.md]] (votes_ 7)
+- **Psalms 24_3** → **John 20_17** [[John ch_ 20.md]] (votes_ 6)
+- **Psalms 24_3** → **Psalms 2_6** [[Psalms ch_ 2.md]] (votes_ 12)
+- **Psalms 24_3** → **Psalms 15_1** [[Psalms ch_ 15.md]] (votes_ 24)
+- **Psalms 24_3** → **Psalms 65_4** [[Psalms ch_ 65.md]] (votes_ 13)
+- **Psalms 24_3** → **John 13_36** [[John ch_ 13.md]] (votes_ 5)
+- **Psalms 24_3** → **Malachi 3_1** [[Malachi ch_ 3.md]] (votes_ 11)
+- **Psalms 24_4** → **James 4_8** [[James ch_ 4.md]] (votes_ 24)
+- **Psalms 24_4** → **Jeremiah 5_2** [[Jeremiah ch_ 5.md]] (votes_ 0)
+- **Psalms 24_4** → **Job 17_9** [[Job ch_ 17.md]] (votes_ 17)
+- **Psalms 24_4** → **Proverbs 20_9** [[Proverbs ch_ 20.md]] (votes_ 3)
+- **Psalms 24_4** → **Genesis 6_5** [[Genesis ch_ 6.md]] (votes_ 1)
+- **Psalms 24_4** → **Psalms 25_1** [[Psalms ch_ 25.md]] (votes_ 2)
+- **Psalms 24_4** → **Malachi 3_5** [[Malachi ch_ 3.md]] (votes_ 3)
+- **Psalms 24_4** → **Ezekiel 18_6** [[Ezekiel ch_ 18.md]] (votes_ 3)
+- **Psalms 24_4** → **Acts 15_9** [[Acts ch_ 15.md]] (votes_ 7)
+- **Psalms 24_4** → **Jeremiah 4_14** [[Jeremiah ch_ 4.md]] (votes_ 3)
+- **Psalms 24_4** → **Psalms 51_10** [[Psalms ch_ 51.md]] (votes_ 25)
+- **Psalms 24_4** → **Deuteronomy 4_19** [[Deuteronomy ch_ 4.md]] (votes_ 2)
+- **Psalms 24_4** → **1 Timothy 1_10** [[1 Timothy ch_ 1.md]] (votes_ 0)
+- **Psalms 24_4** → **Psalms 73_1** [[Psalms ch_ 73.md]] (votes_ 13)
+- **Psalms 24_4** → **Psalms 18_20** [[Psalms ch_ 18.md]] (votes_ 6)
+- **Psalms 24_4** → **Job 9_30** [[Job ch_ 9.md]] (votes_ 2)
+- **Psalms 24_4** → **Psalms 15_4** [[Psalms ch_ 15.md]] (votes_ 6)
+- **Psalms 24_4** → **1 Timothy 2_8** [[1 Timothy ch_ 2.md]] (votes_ 8)
+- **Psalms 24_4** → **Psalms 26_6** [[Psalms ch_ 26.md]] (votes_ 10)
+- **Psalms 24_4** → **Acts 14_15** [[Acts ch_ 14.md]] (votes_ 1)
+- **Psalms 24_4** → **Revelation 21_27** [[Revelation ch_ 21.md]] (votes_ 4)
+- **Psalms 24_4** → **2 Corinthians 7_1** [[2 Corinthians ch_ 7.md]] (votes_ 13)
+- **Psalms 24_4** → **Ezekiel 18_15** [[Ezekiel ch_ 18.md]] (votes_ 0)
+- **Psalms 24_4** → **Matthew 5_8** [[Matthew ch_ 5.md]] (votes_ 35)
+- **Psalms 24_4** → **Psalms 143_8** [[Psalms ch_ 143.md]] (votes_ 6)
+- **Psalms 24_5** → **John 7_17** [[John ch_ 7.md]] (votes_ 2)
+- **Psalms 24_5** → **Galatians 3_14** [[Galatians ch_ 3.md]] (votes_ 3)
+- **Psalms 24_5** → **Isaiah 12_2** [[Isaiah ch_ 12.md]] (votes_ 3)
+- **Psalms 24_5** → **Psalms 88_1** [[Psalms ch_ 88.md]] (votes_ 2)
+- **Psalms 24_5** → **Galatians 5_5** [[Galatians ch_ 5.md]] (votes_ 2)
+- **Psalms 24_5** → **Isaiah 61_10** [[Isaiah ch_ 61.md]] (votes_ 2)
+- **Psalms 24_5** → **1 Corinthians 1_30** [[1 Corinthians ch_ 1.md]] (votes_ 2)
+- **Psalms 24_5** → **Philippians 3_9** [[Philippians ch_ 3.md]] (votes_ 9)
+- **Psalms 24_5** → **Psalms 50_23** [[Psalms ch_ 50.md]] (votes_ 3)
+- **Psalms 24_5** → **Isaiah 46_13** [[Isaiah ch_ 46.md]] (votes_ 5)
+- **Psalms 24_5** → **Psalms 72_17** [[Psalms ch_ 72.md]] (votes_ 2)
+- **Psalms 24_5** → **2 Corinthians 5_21** [[2 Corinthians ch_ 5.md]] (votes_ 2)
+- **Psalms 24_5** → **Isaiah 45_17** [[Isaiah ch_ 45.md]] (votes_ 2)
+- **Psalms 24_5** → **Isaiah 54_17** [[Isaiah ch_ 54.md]] (votes_ 2)
+- **Psalms 24_5** → **1 Peter 3_9** [[1 Peter ch_ 3.md]] (votes_ 4)
+- **Psalms 24_5** → **Psalms 68_19** [[Psalms ch_ 68.md]] (votes_ 2)
+- **Psalms 24_5** → **Romans 3_22** [[Romans ch_ 3.md]] (votes_ 2)
+- **Psalms 24_5** → **Isaiah 51_8** [[Isaiah ch_ 51.md]] (votes_ 2)
+- **Psalms 24_5** → **Galatians 3_9** [[Galatians ch_ 3.md]] (votes_ 2)
+- **Psalms 24_5** → **Ephesians 1_3** [[Ephesians ch_ 1.md]] (votes_ 8)
+- **Psalms 24_6** → **1 Peter 2_9** [[1 Peter ch_ 2.md]] (votes_ 1)
+- **Psalms 24_6** → **Isaiah 53_10** [[Isaiah ch_ 53.md]] (votes_ 1)
+- **Psalms 24_6** → **Romans 4_16** [[Romans ch_ 4.md]] (votes_ 2)
+- **Psalms 24_6** → **Psalms 73_15** [[Psalms ch_ 73.md]] (votes_ 1)
+- **Psalms 24_6** → **Psalms 105_4** [[Psalms ch_ 105.md]] (votes_ 9)
+- **Psalms 24_6** → **Psalms 22_30** [[Psalms ch_ 22.md]] (votes_ 2)
+- **Psalms 24_6** → **Psalms 27_8** [[Psalms ch_ 27.md]] (votes_ 11)
+- **Psalms 24_6** → **John 1_47** [[John ch_ 1.md]] (votes_ 1)
+- **Psalms 24_7** → **1 Kings 8_6** [[1 Kings ch_ 8.md]] (votes_ 6)
+- **Psalms 24_7** → **Revelation 4_11** [[Revelation ch_ 4.md]] (votes_ 17)
+- **Psalms 24_7** → **Psalms 132_8** [[Psalms ch_ 132.md]] (votes_ 8)
+- **Psalms 24_7** → **Psalms 21_1** [[Psalms ch_ 21.md]] (votes_ 5)
+- **Psalms 24_7** → **1 Corinthians 2_8** [[1 Corinthians ch_ 2.md]] (votes_ 17)
+- **Psalms 24_7** → **2 Samuel 6_17** [[2 Samuel ch_ 6.md]] (votes_ 9)
+- **Psalms 24_7** → **2 Peter 3_18** [[2 Peter ch_ 3.md]] (votes_ 7)
+- **Psalms 24_7** → **Mark 16_19** [[Mark ch_ 16.md]] (votes_ 8)
+- **Psalms 24_7** → **Psalms 21_5** [[Psalms ch_ 21.md]] (votes_ 0)
+- **Psalms 24_7** → **Haggai 2_9** [[Haggai ch_ 2.md]] (votes_ 8)
+- **Psalms 24_7** → **1 Peter 3_22** [[1 Peter ch_ 3.md]] (votes_ 9)
+- **Psalms 24_7** → **James 2_1** [[James ch_ 2.md]] (votes_ 5)
+- **Psalms 24_7** → **Haggai 2_7** [[Haggai ch_ 2.md]] (votes_ 13)
+- **Psalms 24_7** → **Isaiah 26_2** [[Isaiah ch_ 26.md]] (votes_ 37)
+- **Psalms 24_7** → **Psalms 97_6** [[Psalms ch_ 97.md]] (votes_ 18)
+- **Psalms 24_7** → **Malachi 3_1** [[Malachi ch_ 3.md]] (votes_ 13)
+- **Psalms 24_7** → **1 Kings 8_11** [[1 Kings ch_ 8.md]] (votes_ 10)
+- **Psalms 24_8** → **Exodus 15_3** [[Exodus ch_ 15.md]] (votes_ 7)
+- **Psalms 24_8** → **Revelation 6_2** [[Revelation ch_ 6.md]] (votes_ 6)
+- **Psalms 24_8** → **Psalms 50_1** [[Psalms ch_ 50.md]] (votes_ 2)
+- **Psalms 24_8** → **Psalms 93_1** [[Psalms ch_ 93.md]] (votes_ 3)
+- **Psalms 24_8** → **Isaiah 9_6** [[Isaiah ch_ 9.md]] (votes_ 2)
+- **Psalms 24_8** → **Colossians 2_15** [[Colossians ch_ 2.md]] (votes_ 4)
+- **Psalms 24_10** → **Titus 2_13** [[Titus ch_ 2.md]] (votes_ 14)
+- **Psalms 24_10** → **Isaiah 54_5** [[Isaiah ch_ 54.md]] (votes_ 9)
+- **Psalms 24_10** → **John 14_9** [[John ch_ 14.md]] (votes_ 5)
+- **Psalms 24_10** → **Matthew 25_34** [[Matthew ch_ 25.md]] (votes_ 9)
+- **Psalms 24_10** → **Matthew 25_31** [[Matthew ch_ 25.md]] (votes_ 4)
+- **Psalms 24_10** → **Luke 9_26** [[Luke ch_ 9.md]] (votes_ 3)
+- **Psalms 24_10** → **John 12_40** [[John ch_ 12.md]] (votes_ 5)

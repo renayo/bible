@@ -1,0 +1,157 @@
+# Psalms 143
+
+**1** ¶ A Psalm of David. Hear my prayer, O LORD, give ear to my supplications_ in thy faithfulness answer me, [and] in thy righteousness.
+
+**2** And enter not into judgment with thy servant_ for in thy sight shall no man living be justified.
+
+**3** For the enemy hath persecuted my soul; he hath smitten my life down to the ground; he hath made me to dwell in darkness, as those that have been long dead.
+
+**4** Therefore is my spirit overwhelmed within me; my heart within me is desolate.
+
+**5** I remember the days of old; I meditate on all thy works; I muse on the work of thy hands.
+
+**6** I stretch forth my hands unto thee_ my soul [thirsteth] after thee, as a thirsty land. Selah.
+
+**7** ¶ Hear me speedily, O LORD_ my spirit faileth_ hide not thy face from me, lest I be like unto them that go down into the pit.
+
+**8** Cause me to hear thy lovingkindness in the morning; for in thee do I trust_ cause me to know the way wherein I should walk; for I lift up my soul unto thee.
+
+**9** Deliver me, O LORD, from mine enemies_ I flee unto thee to hide me.
+
+**10** Teach me to do thy will; for thou [art] my God_ thy spirit [is] good; lead me into the land of uprightness.
+
+**11** Quicken me, O LORD, for thy name's sake_ for thy righteousness' sake bring my soul out of trouble.
+
+**12** And of thy mercy cut off mine enemies, and destroy all them that afflict my soul_ for I [am] thy servant.
+
+---
+
+## Cross-References
+
+- **Psalms 143_1** → **1 John 1_9** [[1 John ch_ 1.md]] (votes_ 6)
+- **Psalms 143_1** → **Psalms 71_2** [[Psalms ch_ 71.md]] (votes_ 16)
+- **Psalms 143_1** → **Psalms 31_1** [[Psalms ch_ 31.md]] (votes_ 10)
+- **Psalms 143_1** → **Psalms 140_6** [[Psalms ch_ 140.md]] (votes_ 9)
+- **Psalms 143_1** → **Daniel 9_16** [[Daniel ch_ 9.md]] (votes_ 7)
+- **Psalms 143_1** → **2 Samuel 7_25** [[2 Samuel ch_ 7.md]] (votes_ 2)
+- **Psalms 143_2** → **Job 14_3** [[Job ch_ 14.md]] (votes_ 6)
+- **Psalms 143_2** → **Job 15_14** [[Job ch_ 15.md]] (votes_ 6)
+- **Psalms 143_2** → **1 John 1_10** [[1 John ch_ 1.md]] (votes_ 7)
+- **Psalms 143_2** → **Exodus 34_7** [[Exodus ch_ 34.md]] (votes_ 4)
+- **Psalms 143_2** → **Galatians 2_16** [[Galatians ch_ 2.md]] (votes_ 6)
+- **Psalms 143_2** → **Job 4_17** [[Job ch_ 4.md]] (votes_ 4)
+- **Psalms 143_2** → **Ecclesiastes 7_20** [[Ecclesiastes ch_ 7.md]] (votes_ 14)
+- **Psalms 143_2** → **Romans 3_20** [[Romans ch_ 3.md]] (votes_ 9)
+- **Psalms 143_2** → **Job 25_4** [[Job ch_ 25.md]] (votes_ 10)
+- **Psalms 143_2** → **1 Kings 8_46** [[1 Kings ch_ 8.md]] (votes_ 4)
+- **Psalms 143_2** → **Psalms 130_3** [[Psalms ch_ 130.md]] (votes_ 8)
+- **Psalms 143_3** → **2 Samuel 2_22** [[2 Samuel ch_ 2.md]] (votes_ 6)
+- **Psalms 143_3** → **Psalms 142_6** [[Psalms ch_ 142.md]] (votes_ 6)
+- **Psalms 143_3** → **Psalms 7_5** [[Psalms ch_ 7.md]] (votes_ 7)
+- **Psalms 143_3** → **Ezekiel 37_11** [[Ezekiel ch_ 37.md]] (votes_ 4)
+- **Psalms 143_3** → **Psalms 35_4** [[Psalms ch_ 35.md]] (votes_ 6)
+- **Psalms 143_3** → **Psalms 54_3** [[Psalms ch_ 54.md]] (votes_ 5)
+- **Psalms 143_3** → **2 Samuel 18_11** [[2 Samuel ch_ 18.md]] (votes_ 5)
+- **Psalms 143_3** → **Lamentations 3_6** [[Lamentations ch_ 3.md]] (votes_ 9)
+- **Psalms 143_4** → **Psalms 142_3** [[Psalms ch_ 142.md]] (votes_ 4)
+- **Psalms 143_4** → **Job 6_27** [[Job ch_ 6.md]] (votes_ 2)
+- **Psalms 143_4** → **Psalms 55_5** [[Psalms ch_ 55.md]] (votes_ 2)
+- **Psalms 143_4** → **Psalms 61_2** [[Psalms ch_ 61.md]] (votes_ 2)
+- **Psalms 143_4** → **Luke 22_44** [[Luke ch_ 22.md]] (votes_ 3)
+- **Psalms 143_4** → **Psalms 77_3** [[Psalms ch_ 77.md]] (votes_ 4)
+- **Psalms 143_4** → **Psalms 124_4** [[Psalms ch_ 124.md]] (votes_ 2)
+- **Psalms 143_4** → **Psalms 102_1** [[Psalms ch_ 102.md]] (votes_ 2)
+- **Psalms 143_4** → **Psalms 25_16** [[Psalms ch_ 25.md]] (votes_ 2)
+- **Psalms 143_5** → **Psalms 42_6** [[Psalms ch_ 42.md]] (votes_ 2)
+- **Psalms 143_5** → **Psalms 111_4** [[Psalms ch_ 111.md]] (votes_ 3)
+- **Psalms 143_5** → **Micah 6_5** [[Micah ch_ 6.md]] (votes_ 4)
+- **Psalms 143_6** → **Job 11_13** [[Job ch_ 11.md]] (votes_ 9)
+- **Psalms 143_6** → **John 7_37** [[John ch_ 7.md]] (votes_ 3)
+- **Psalms 143_6** → **Psalms 63_1** [[Psalms ch_ 63.md]] (votes_ 10)
+- **Psalms 143_6** → **Psalms 44_20** [[Psalms ch_ 44.md]] (votes_ 6)
+- **Psalms 143_6** → **Psalms 84_2** [[Psalms ch_ 84.md]] (votes_ 8)
+- **Psalms 143_6** → **Isaiah 35_7** [[Isaiah ch_ 35.md]] (votes_ 4)
+- **Psalms 143_6** → **Psalms 88_9** [[Psalms ch_ 88.md]] (votes_ 8)
+- **Psalms 143_7** → **Psalms 40_17** [[Psalms ch_ 40.md]] (votes_ 3)
+- **Psalms 143_7** → **Psalms 69_3** [[Psalms ch_ 69.md]] (votes_ 4)
+- **Psalms 143_7** → **Isaiah 57_16** [[Isaiah ch_ 57.md]] (votes_ 3)
+- **Psalms 143_7** → **Psalms 22_24** [[Psalms ch_ 22.md]] (votes_ 3)
+- **Psalms 143_7** → **Psalms 71_12** [[Psalms ch_ 71.md]] (votes_ 5)
+- **Psalms 143_7** → **Isaiah 8_17** [[Isaiah ch_ 8.md]] (votes_ 3)
+- **Psalms 143_7** → **Psalms 27_9** [[Psalms ch_ 27.md]] (votes_ 7)
+- **Psalms 143_7** → **Psalms 28_1** [[Psalms ch_ 28.md]] (votes_ 8)
+- **Psalms 143_7** → **Psalms 70_5** [[Psalms ch_ 70.md]] (votes_ 4)
+- **Psalms 143_7** → **Psalms 102_2** [[Psalms ch_ 102.md]] (votes_ 4)
+- **Psalms 143_7** → **Isaiah 38_18** [[Isaiah ch_ 38.md]] (votes_ 4)
+- **Psalms 143_7** → **Psalms 69_17** [[Psalms ch_ 69.md]] (votes_ 11)
+- **Psalms 143_7** → **Psalms 84_2** [[Psalms ch_ 84.md]] (votes_ 2)
+- **Psalms 143_7** → **Luke 21_26** [[Luke ch_ 21.md]] (votes_ 3)
+- **Psalms 143_8** → **Isaiah 48_17** [[Isaiah ch_ 48.md]] (votes_ 30)
+- **Psalms 143_8** → **Psalms 46_5** [[Psalms ch_ 46.md]] (votes_ 28)
+- **Psalms 143_8** → **Psalms 30_5** [[Psalms ch_ 30.md]] (votes_ 20)
+- **Psalms 143_8** → **Psalms 5_8** [[Psalms ch_ 5.md]] (votes_ 17)
+- **Psalms 143_8** → **Lamentations 3_41** [[Lamentations ch_ 3.md]] (votes_ 21)
+- **Psalms 143_8** → **Psalms 119_73** [[Psalms ch_ 119.md]] (votes_ 17)
+- **Psalms 143_8** → **Psalms 86_4** [[Psalms ch_ 86.md]] (votes_ 21)
+- **Psalms 143_8** → **Psalms 27_11** [[Psalms ch_ 27.md]] (votes_ 23)
+- **Psalms 143_8** → **Psalms 59_16** [[Psalms ch_ 59.md]] (votes_ 24)
+- **Psalms 143_8** → **Psalms 32_8** [[Psalms ch_ 32.md]] (votes_ 30)
+- **Psalms 143_8** → **Psalms 42_8** [[Psalms ch_ 42.md]] (votes_ 15)
+- **Psalms 143_8** → **Psalms 119_34** [[Psalms ch_ 119.md]] (votes_ 19)
+- **Psalms 143_8** → **Isaiah 30_21** [[Isaiah ch_ 30.md]] (votes_ 27)
+- **Psalms 143_8** → **Psalms 90_14** [[Psalms ch_ 90.md]] (votes_ 20)
+- **Psalms 143_8** → **Hosea 6_3** [[Hosea ch_ 6.md]] (votes_ 14)
+- **Psalms 143_8** → **Psalms 143_10** [[Psalms ch_ 143.md]] (votes_ 24)
+- **Psalms 143_9** → **Psalms 142_5** [[Psalms ch_ 142.md]] (votes_ 4)
+- **Psalms 143_9** → **Proverbs 18_10** [[Proverbs ch_ 18.md]] (votes_ 8)
+- **Psalms 143_9** → **Psalms 31_15** [[Psalms ch_ 31.md]] (votes_ 3)
+- **Psalms 143_9** → **Psalms 59_1** [[Psalms ch_ 59.md]] (votes_ 4)
+- **Psalms 143_9** → **Hebrews 6_18** [[Hebrews ch_ 6.md]] (votes_ 2)
+- **Psalms 143_9** → **Psalms 56_9** [[Psalms ch_ 56.md]] (votes_ 3)
+- **Psalms 143_10** → **Matthew 28_20** [[Matthew ch_ 28.md]] (votes_ 4)
+- **Psalms 143_10** → **Micah 4_2** [[Micah ch_ 4.md]] (votes_ 6)
+- **Psalms 143_10** → **Nehemiah 9_20** [[Nehemiah ch_ 9.md]] (votes_ 15)
+- **Psalms 143_10** → **Romans 15_30** [[Romans ch_ 15.md]] (votes_ 4)
+- **Psalms 143_10** → **Psalms 119_12** [[Psalms ch_ 119.md]] (votes_ 16)
+- **Psalms 143_10** → **Psalms 25_12** [[Psalms ch_ 25.md]] (votes_ 8)
+- **Psalms 143_10** → **Psalms 118_28** [[Psalms ch_ 118.md]] (votes_ 5)
+- **Psalms 143_10** → **Psalms 140_6** [[Psalms ch_ 140.md]] (votes_ 8)
+- **Psalms 143_10** → **Psalms 139_24** [[Psalms ch_ 139.md]] (votes_ 6)
+- **Psalms 143_10** → **Psalms 63_1** [[Psalms ch_ 63.md]] (votes_ 5)
+- **Psalms 143_10** → **Psalms 22_1** [[Psalms ch_ 22.md]] (votes_ 4)
+- **Psalms 143_10** → **Isaiah 29_10** [[Isaiah ch_ 29.md]] (votes_ 1)
+- **Psalms 143_10** → **2 Timothy 1_7** [[2 Timothy ch_ 1.md]] (votes_ 14)
+- **Psalms 143_10** → **Ephesians 5_9** [[Ephesians ch_ 5.md]] (votes_ 6)
+- **Psalms 143_10** → **Romans 8_26** [[Romans ch_ 8.md]] (votes_ 10)
+- **Psalms 143_10** → **Psalms 31_14** [[Psalms ch_ 31.md]] (votes_ 9)
+- **Psalms 143_10** → **1 John 2_27** [[1 John ch_ 2.md]] (votes_ 12)
+- **Psalms 143_10** → **Psalms 23_3** [[Psalms ch_ 23.md]] (votes_ 17)
+- **Psalms 143_10** → **Ephesians 4_30** [[Ephesians ch_ 4.md]] (votes_ 7)
+- **Psalms 143_10** → **Romans 5_5** [[Romans ch_ 5.md]] (votes_ 9)
+- **Psalms 143_10** → **Psalms 119_35** [[Psalms ch_ 119.md]] (votes_ 9)
+- **Psalms 143_10** → **Hebrews 13_21** [[Hebrews ch_ 13.md]] (votes_ 20)
+- **Psalms 143_10** → **Romans 8_2** [[Romans ch_ 8.md]] (votes_ 8)
+- **Psalms 143_10** → **Romans 15_13** [[Romans ch_ 15.md]] (votes_ 13)
+- **Psalms 143_10** → **Isaiah 63_14** [[Isaiah ch_ 63.md]] (votes_ 7)
+- **Psalms 143_10** → **John 14_26** [[John ch_ 14.md]] (votes_ 26)
+- **Psalms 143_11** → **Psalms 85_6** [[Psalms ch_ 85.md]] (votes_ 2)
+- **Psalms 143_11** → **Habakkuk 3_2** [[Habakkuk ch_ 3.md]] (votes_ 2)
+- **Psalms 143_11** → **Psalms 138_7** [[Psalms ch_ 138.md]] (votes_ 4)
+- **Psalms 143_11** → **Psalms 119_40** [[Psalms ch_ 119.md]] (votes_ 1)
+- **Psalms 143_11** → **Psalms 34_19** [[Psalms ch_ 34.md]] (votes_ 4)
+- **Psalms 143_11** → **Psalms 119_37** [[Psalms ch_ 119.md]] (votes_ 3)
+- **Psalms 143_11** → **Psalms 119_25** [[Psalms ch_ 119.md]] (votes_ 5)
+- **Psalms 143_11** → **Psalms 25_11** [[Psalms ch_ 25.md]] (votes_ 4)
+- **Psalms 143_11** → **Psalms 25_17** [[Psalms ch_ 25.md]] (votes_ 2)
+- **Psalms 143_11** → **Psalms 31_1** [[Psalms ch_ 31.md]] (votes_ 7)
+- **Psalms 143_11** → **Psalms 119_107** [[Psalms ch_ 119.md]] (votes_ 2)
+- **Psalms 143_11** → **Psalms 119_88** [[Psalms ch_ 119.md]] (votes_ 2)
+- **Psalms 143_11** → **Psalms 71_2** [[Psalms ch_ 71.md]] (votes_ 5)
+- **Psalms 143_11** → **Psalms 143_1** [[Psalms ch_ 143.md]] (votes_ 2)
+- **Psalms 143_12** → **Psalms 55_23** [[Psalms ch_ 55.md]] (votes_ 3)
+- **Psalms 143_12** → **Psalms 119_94** [[Psalms ch_ 119.md]] (votes_ 5)
+- **Psalms 143_12** → **Psalms 54_5** [[Psalms ch_ 54.md]] (votes_ 7)
+- **Psalms 143_12** → **Psalms 116_16** [[Psalms ch_ 116.md]] (votes_ 6)
+- **Psalms 143_12** → **1 Samuel 25_29** [[1 Samuel ch_ 25.md]] (votes_ 3)
+- **Psalms 143_12** → **1 Samuel 26_10** [[1 Samuel ch_ 26.md]] (votes_ 3)
+- **Psalms 143_12** → **Psalms 52_5** [[Psalms ch_ 52.md]] (votes_ 3)

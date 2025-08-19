@@ -1,0 +1,318 @@
+# Psalms 35
+
+**1** ¶ [A Psalm] of David. Plead [my cause], O LORD, with them that strive with me_ fight against them that fight against me.
+
+**2** Take hold of shield and buckler, and stand up for mine help.
+
+**3** Draw out also the spear, and stop [the way] against them that persecute me_ say unto my soul, I [am] thy salvation.
+
+**4** Let them be confounded and put to shame that seek after my soul_ let them be turned back and brought to confusion that devise my hurt.
+
+**5** Let them be as chaff before the wind_ and let the angel of the LORD chase [them].
+
+**6** Let their way be dark and slippery_ and let the angel of the LORD persecute them.
+
+**7** For without cause have they hid for me their net [in] a pit, [which] without cause they have digged for my soul.
+
+**8** Let destruction come upon him at unawares; and let his net that he hath hid catch himself_ into that very destruction let him fall.
+
+**9** And my soul shall be joyful in the LORD_ it shall rejoice in his salvation.
+
+**10** All my bones shall say, LORD, who [is] like unto thee, which deliverest the poor from him that is too strong for him, yea, the poor and the needy from him that spoileth him?
+
+**11** ¶ False witnesses did rise up; they laid to my charge [things] that I knew not.
+
+**12** They rewarded me evil for good [to] the spoiling of my soul.
+
+**13** But as for me, when they were sick, my clothing [was] sackcloth_ I humbled my soul with fasting; and my prayer returned into mine own bosom.
+
+**14** I behaved myself as though [he had been] my friend [or] brother_ I bowed down heavily, as one that mourneth [for his] mother.
+
+**15** But in mine adversity they rejoiced, and gathered themselves together_ [yea], the abjects gathered themselves together against me, and I knew [it] not; they did tear [me], and ceased not_
+
+**16** With hypocritical mockers in feasts, they gnashed upon me with their teeth.
+
+**17** ¶ Lord, how long wilt thou look on? rescue my soul from their destructions, my darling from the lions.
+
+**18** I will give thee thanks in the great congregation_ I will praise thee among much people.
+
+**19** Let not them that are mine enemies wrongfully rejoice over me_ [neither] let them wink with the eye that hate me without a cause.
+
+**20** For they speak not peace_ but they devise deceitful matters against [them that are] quiet in the land.
+
+**21** Yea, they opened their mouth wide against me, [and] said, Aha, aha, our eye hath seen [it].
+
+**22** [This] thou hast seen, O LORD_ keep not silence_ O Lord, be not far from me.
+
+**23** Stir up thyself, and awake to my judgment, [even] unto my cause, my God and my Lord.
+
+**24** Judge me, O LORD my God, according to thy righteousness; and let them not rejoice over me.
+
+**25** Let them not say in their hearts, Ah, so would we have it_ let them not say, We have swallowed him up.
+
+**26** Let them be ashamed and brought to confusion together that rejoice at mine hurt_ let them be clothed with shame and dishonour that magnify [themselves] against me.
+
+**27** Let them shout for joy, and be glad, that favour my righteous cause_ yea, let them say continually, Let the LORD be magnified, which hath pleasure in the prosperity of his servant.
+
+**28** And my tongue shall speak of thy righteousness [and] of thy praise all the day long.
+
+---
+
+## Cross-References
+
+- **Psalms 35_1** → **Proverbs 23_11** [[Proverbs ch_ 23.md]] (votes_ 18)
+- **Psalms 35_1** → **Psalms 119_154** [[Psalms ch_ 119.md]] (votes_ 26)
+- **Psalms 35_1** → **Proverbs 22_23** [[Proverbs ch_ 22.md]] (votes_ 18)
+- **Psalms 35_1** → **Isaiah 49_25** [[Isaiah ch_ 49.md]] (votes_ 22)
+- **Psalms 35_1** → **Nehemiah 4_20** [[Nehemiah ch_ 4.md]] (votes_ 11)
+- **Psalms 35_1** → **Jeremiah 51_36** [[Jeremiah ch_ 51.md]] (votes_ 25)
+- **Psalms 35_1** → **Joshua 10_42** [[Joshua ch_ 10.md]] (votes_ 10)
+- **Psalms 35_1** → **Psalms 43_1** [[Psalms ch_ 43.md]] (votes_ 37)
+- **Psalms 35_1** → **1 Samuel 24_15** [[1 Samuel ch_ 24.md]] (votes_ 15)
+- **Psalms 35_1** → **Acts 5_39** [[Acts ch_ 5.md]] (votes_ 15)
+- **Psalms 35_1** → **Exodus 14_25** [[Exodus ch_ 14.md]] (votes_ 14)
+- **Psalms 35_1** → **Acts 23_9** [[Acts ch_ 23.md]] (votes_ 12)
+- **Psalms 35_1** → **Lamentations 3_58** [[Lamentations ch_ 3.md]] (votes_ 17)
+- **Psalms 35_1** → **Micah 7_9** [[Micah ch_ 7.md]] (votes_ 12)
+- **Psalms 35_2** → **Exodus 15_3** [[Exodus ch_ 15.md]] (votes_ 8)
+- **Psalms 35_2** → **Isaiah 13_5** [[Isaiah ch_ 13.md]] (votes_ 5)
+- **Psalms 35_2** → **Psalms 91_4** [[Psalms ch_ 91.md]] (votes_ 9)
+- **Psalms 35_2** → **Isaiah 42_13** [[Isaiah ch_ 42.md]] (votes_ 8)
+- **Psalms 35_3** → **Luke 2_30** [[Luke ch_ 2.md]] (votes_ 3)
+- **Psalms 35_3** → **Job 1_10** [[Job ch_ 1.md]] (votes_ 3)
+- **Psalms 35_3** → **Psalms 62_7** [[Psalms ch_ 62.md]] (votes_ 3)
+- **Psalms 35_3** → **Psalms 76_10** [[Psalms ch_ 76.md]] (votes_ 3)
+- **Psalms 35_3** → **Isaiah 12_2** [[Isaiah ch_ 12.md]] (votes_ 7)
+- **Psalms 35_3** → **Psalms 51_12** [[Psalms ch_ 51.md]] (votes_ 5)
+- **Psalms 35_3** → **Psalms 91_16** [[Psalms ch_ 91.md]] (votes_ 5)
+- **Psalms 35_3** → **Acts 4_28** [[Acts ch_ 4.md]] (votes_ 3)
+- **Psalms 35_3** → **Psalms 27_2** [[Psalms ch_ 27.md]] (votes_ 6)
+- **Psalms 35_3** → **Isaiah 10_12** [[Isaiah ch_ 10.md]] (votes_ 3)
+- **Psalms 35_3** → **Genesis 49_18** [[Genesis ch_ 49.md]] (votes_ 3)
+- **Psalms 35_4** → **Psalms 129_5** [[Psalms ch_ 129.md]] (votes_ 7)
+- **Psalms 35_4** → **Matthew 27_1** [[Matthew ch_ 27.md]] (votes_ 2)
+- **Psalms 35_4** → **Isaiah 37_29** [[Isaiah ch_ 37.md]] (votes_ 3)
+- **Psalms 35_4** → **1 Samuel 23_23** [[1 Samuel ch_ 23.md]] (votes_ 4)
+- **Psalms 35_4** → **Ezekiel 13_19** [[Ezekiel ch_ 13.md]] (votes_ 3)
+- **Psalms 35_4** → **Jeremiah 46_5** [[Jeremiah ch_ 46.md]] (votes_ 10)
+- **Psalms 35_4** → **Psalms 71_24** [[Psalms ch_ 71.md]] (votes_ 5)
+- **Psalms 35_4** → **1 Kings 19_10** [[1 Kings ch_ 19.md]] (votes_ 3)
+- **Psalms 35_4** → **Psalms 38_12** [[Psalms ch_ 38.md]] (votes_ 8)
+- **Psalms 35_4** → **John 18_6** [[John ch_ 18.md]] (votes_ 3)
+- **Psalms 35_4** → **Psalms 35_26** [[Psalms ch_ 35.md]] (votes_ 9)
+- **Psalms 35_5** → **Job 21_18** [[Job ch_ 21.md]] (votes_ 7)
+- **Psalms 35_5** → **Hosea 13_3** [[Hosea ch_ 13.md]] (votes_ 4)
+- **Psalms 35_5** → **Hebrews 11_28** [[Hebrews ch_ 11.md]] (votes_ 4)
+- **Psalms 35_5** → **Isaiah 29_5** [[Isaiah ch_ 29.md]] (votes_ 6)
+- **Psalms 35_5** → **Acts 12_23** [[Acts ch_ 12.md]] (votes_ 4)
+- **Psalms 35_5** → **Psalms 1_4** [[Psalms ch_ 1.md]] (votes_ 4)
+- **Psalms 35_5** → **Isaiah 17_13** [[Isaiah ch_ 17.md]] (votes_ 4)
+- **Psalms 35_5** → **Isaiah 37_36** [[Isaiah ch_ 37.md]] (votes_ 4)
+- **Psalms 35_5** → **Exodus 14_19** [[Exodus ch_ 14.md]] (votes_ 4)
+- **Psalms 35_6** → **Proverbs 4_19** [[Proverbs ch_ 4.md]] (votes_ 3)
+- **Psalms 35_6** → **Psalms 73_18** [[Psalms ch_ 73.md]] (votes_ 5)
+- **Psalms 35_6** → **Jeremiah 13_16** [[Jeremiah ch_ 13.md]] (votes_ 3)
+- **Psalms 35_6** → **Jeremiah 23_12** [[Jeremiah ch_ 23.md]] (votes_ 6)
+- **Psalms 35_7** → **Psalms 69_4** [[Psalms ch_ 69.md]] (votes_ 4)
+- **Psalms 35_7** → **Psalms 119_85** [[Psalms ch_ 119.md]] (votes_ 3)
+- **Psalms 35_7** → **Psalms 25_3** [[Psalms ch_ 25.md]] (votes_ 4)
+- **Psalms 35_7** → **Psalms 64_4** [[Psalms ch_ 64.md]] (votes_ 2)
+- **Psalms 35_7** → **Psalms 140_5** [[Psalms ch_ 140.md]] (votes_ 7)
+- **Psalms 35_7** → **Psalms 9_15** [[Psalms ch_ 9.md]] (votes_ 5)
+- **Psalms 35_7** → **Job 18_8** [[Job ch_ 18.md]] (votes_ 4)
+- **Psalms 35_7** → **John 15_25** [[John ch_ 15.md]] (votes_ 7)
+- **Psalms 35_8** → **Esther 7_10** [[Esther ch_ 7.md]] (votes_ 3)
+- **Psalms 35_8** → **Psalms 64_7** [[Psalms ch_ 64.md]] (votes_ 2)
+- **Psalms 35_8** → **1 Samuel 18_17** [[1 Samuel ch_ 18.md]] (votes_ 3)
+- **Psalms 35_8** → **2 Samuel 17_23** [[2 Samuel ch_ 17.md]] (votes_ 2)
+- **Psalms 35_8** → **Isaiah 47_11** [[Isaiah ch_ 47.md]] (votes_ 5)
+- **Psalms 35_8** → **Proverbs 5_22** [[Proverbs ch_ 5.md]] (votes_ 6)
+- **Psalms 35_8** → **Psalms 57_6** [[Psalms ch_ 57.md]] (votes_ 5)
+- **Psalms 35_8** → **Proverbs 29_1** [[Proverbs ch_ 29.md]] (votes_ 3)
+- **Psalms 35_8** → **1 Thessalonians 5_3** [[1 Thessalonians ch_ 5.md]] (votes_ 5)
+- **Psalms 35_8** → **Psalms 9_15** [[Psalms ch_ 9.md]] (votes_ 6)
+- **Psalms 35_8** → **Luke 21_34** [[Luke ch_ 21.md]] (votes_ 6)
+- **Psalms 35_9** → **Habakkuk 3_18** [[Habakkuk ch_ 3.md]] (votes_ 2)
+- **Psalms 35_9** → **Psalms 9_14** [[Psalms ch_ 9.md]] (votes_ 2)
+- **Psalms 35_9** → **Psalms 48_11** [[Psalms ch_ 48.md]] (votes_ 2)
+- **Psalms 35_9** → **Psalms 21_1** [[Psalms ch_ 21.md]] (votes_ 2)
+- **Psalms 35_9** → **Psalms 33_21** [[Psalms ch_ 33.md]] (votes_ 2)
+- **Psalms 35_9** → **Isaiah 61_10** [[Isaiah ch_ 61.md]] (votes_ 5)
+- **Psalms 35_9** → **1 Samuel 2_1** [[1 Samuel ch_ 2.md]] (votes_ 2)
+- **Psalms 35_9** → **Psalms 13_5** [[Psalms ch_ 13.md]] (votes_ 2)
+- **Psalms 35_9** → **Galatians 5_22** [[Galatians ch_ 5.md]] (votes_ 2)
+- **Psalms 35_10** → **Psalms 37_14** [[Psalms ch_ 37.md]] (votes_ 2)
+- **Psalms 35_10** → **Psalms 32_3** [[Psalms ch_ 32.md]] (votes_ 3)
+- **Psalms 35_10** → **Psalms 34_6** [[Psalms ch_ 34.md]] (votes_ 2)
+- **Psalms 35_10** → **Psalms 109_31** [[Psalms ch_ 109.md]] (votes_ 5)
+- **Psalms 35_10** → **Psalms 86_8** [[Psalms ch_ 86.md]] (votes_ 5)
+- **Psalms 35_10** → **Psalms 140_12** [[Psalms ch_ 140.md]] (votes_ 6)
+- **Psalms 35_10** → **Psalms 34_20** [[Psalms ch_ 34.md]] (votes_ 3)
+- **Psalms 35_10** → **Psalms 22_24** [[Psalms ch_ 22.md]] (votes_ 2)
+- **Psalms 35_10** → **Psalms 38_3** [[Psalms ch_ 38.md]] (votes_ 3)
+- **Psalms 35_10** → **Psalms 10_14** [[Psalms ch_ 10.md]] (votes_ 3)
+- **Psalms 35_10** → **Psalms 18_17** [[Psalms ch_ 18.md]] (votes_ 4)
+- **Psalms 35_10** → **Psalms 22_14** [[Psalms ch_ 22.md]] (votes_ 3)
+- **Psalms 35_10** → **Jeremiah 10_7** [[Jeremiah ch_ 10.md]] (votes_ 1)
+- **Psalms 35_10** → **Isaiah 40_18** [[Isaiah ch_ 40.md]] (votes_ 2)
+- **Psalms 35_10** → **Exodus 15_11** [[Exodus ch_ 15.md]] (votes_ 6)
+- **Psalms 35_10** → **Psalms 51_8** [[Psalms ch_ 51.md]] (votes_ 5)
+- **Psalms 35_10** → **Psalms 102_3** [[Psalms ch_ 102.md]] (votes_ 2)
+- **Psalms 35_10** → **Psalms 71_19** [[Psalms ch_ 71.md]] (votes_ 5)
+- **Psalms 35_10** → **Psalms 69_33** [[Psalms ch_ 69.md]] (votes_ 2)
+- **Psalms 35_10** → **Isaiah 40_25** [[Isaiah ch_ 40.md]] (votes_ 2)
+- **Psalms 35_11** → **Acts 6_13** [[Acts ch_ 6.md]] (votes_ 2)
+- **Psalms 35_11** → **1 Samuel 24_9** [[1 Samuel ch_ 24.md]] (votes_ 2)
+- **Psalms 35_11** → **Psalms 27_12** [[Psalms ch_ 27.md]] (votes_ 7)
+- **Psalms 35_11** → **1 Samuel 25_10** [[1 Samuel ch_ 25.md]] (votes_ 2)
+- **Psalms 35_12** → **1 Samuel 19_15** [[1 Samuel ch_ 19.md]] (votes_ 3)
+- **Psalms 35_12** → **Jeremiah 18_20** [[Jeremiah ch_ 18.md]] (votes_ 7)
+- **Psalms 35_12** → **Psalms 38_20** [[Psalms ch_ 38.md]] (votes_ 7)
+- **Psalms 35_12** → **John 10_32** [[John ch_ 10.md]] (votes_ 9)
+- **Psalms 35_12** → **Proverbs 17_13** [[Proverbs ch_ 17.md]] (votes_ 5)
+- **Psalms 35_13** → **Luke 10_6** [[Luke ch_ 10.md]] (votes_ 3)
+- **Psalms 35_13** → **Isaiah 58_5** [[Isaiah ch_ 58.md]] (votes_ 3)
+- **Psalms 35_13** → **Matthew 5_44** [[Matthew ch_ 5.md]] (votes_ 4)
+- **Psalms 35_13** → **Leviticus 16_31** [[Leviticus ch_ 16.md]] (votes_ 4)
+- **Psalms 35_13** → **Leviticus 16_29** [[Leviticus ch_ 16.md]] (votes_ 2)
+- **Psalms 35_13** → **Isaiah 58_3** [[Isaiah ch_ 58.md]] (votes_ 2)
+- **Psalms 35_13** → **Matthew 10_13** [[Matthew ch_ 10.md]] (votes_ 4)
+- **Psalms 35_13** → **Job 30_25** [[Job ch_ 30.md]] (votes_ 5)
+- **Psalms 35_14** → **Psalms 38_6** [[Psalms ch_ 38.md]] (votes_ 2)
+- **Psalms 35_14** → **Genesis 24_67** [[Genesis ch_ 24.md]] (votes_ 2)
+- **Psalms 35_15** → **Acts 17_5** [[Acts ch_ 17.md]] (votes_ 2)
+- **Psalms 35_15** → **Proverbs 17_5** [[Proverbs ch_ 17.md]] (votes_ 2)
+- **Psalms 35_15** → **1 Corinthians 13_6** [[1 Corinthians ch_ 13.md]] (votes_ 2)
+- **Psalms 35_15** → **Psalms 22_16** [[Psalms ch_ 22.md]] (votes_ 2)
+- **Psalms 35_15** → **Job 16_9** [[Job ch_ 16.md]] (votes_ 2)
+- **Psalms 35_15** → **Jeremiah 20_10** [[Jeremiah ch_ 20.md]] (votes_ 2)
+- **Psalms 35_15** → **Psalms 69_12** [[Psalms ch_ 69.md]] (votes_ 2)
+- **Psalms 35_15** → **Psalms 7_2** [[Psalms ch_ 7.md]] (votes_ 3)
+- **Psalms 35_15** → **Psalms 38_17** [[Psalms ch_ 38.md]] (votes_ 2)
+- **Psalms 35_15** → **Mark 14_65** [[Mark ch_ 14.md]] (votes_ 3)
+- **Psalms 35_15** → **Job 31_29** [[Job ch_ 31.md]] (votes_ 2)
+- **Psalms 35_15** → **Psalms 35_8** [[Psalms ch_ 35.md]] (votes_ 2)
+- **Psalms 35_15** → **Psalms 57_4** [[Psalms ch_ 57.md]] (votes_ 2)
+- **Psalms 35_15** → **Psalms 41_8** [[Psalms ch_ 41.md]] (votes_ 2)
+- **Psalms 35_16** → **1 Corinthians 5_8** [[1 Corinthians ch_ 5.md]] (votes_ 2)
+- **Psalms 35_16** → **John 18_28** [[John ch_ 18.md]] (votes_ 3)
+- **Psalms 35_16** → **Acts 7_54** [[Acts ch_ 7.md]] (votes_ 2)
+- **Psalms 35_16** → **Lamentations 2_16** [[Lamentations ch_ 2.md]] (votes_ 5)
+- **Psalms 35_16** → **Psalms 37_12** [[Psalms ch_ 37.md]] (votes_ 4)
+- **Psalms 35_16** → **Job 16_9** [[Job ch_ 16.md]] (votes_ 5)
+- **Psalms 35_17** → **Psalms 10_14** [[Psalms ch_ 10.md]] (votes_ 3)
+- **Psalms 35_17** → **Psalms 6_3** [[Psalms ch_ 6.md]] (votes_ 3)
+- **Psalms 35_17** → **Psalms 89_46** [[Psalms ch_ 89.md]] (votes_ 4)
+- **Psalms 35_17** → **Habakkuk 1_13** [[Habakkuk ch_ 1.md]] (votes_ 8)
+- **Psalms 35_17** → **Psalms 57_4** [[Psalms ch_ 57.md]] (votes_ 5)
+- **Psalms 35_18** → **Psalms 116_14** [[Psalms ch_ 116.md]] (votes_ 3)
+- **Psalms 35_18** → **Hebrews 2_12** [[Hebrews ch_ 2.md]] (votes_ 5)
+- **Psalms 35_18** → **Isaiah 25_3** [[Isaiah ch_ 25.md]] (votes_ 2)
+- **Psalms 35_18** → **Psalms 111_1** [[Psalms ch_ 111.md]] (votes_ 0)
+- **Psalms 35_18** → **Psalms 116_18** [[Psalms ch_ 116.md]] (votes_ 3)
+- **Psalms 35_18** → **Psalms 22_31** [[Psalms ch_ 22.md]] (votes_ 1)
+- **Psalms 35_18** → **Romans 15_9** [[Romans ch_ 15.md]] (votes_ 1)
+- **Psalms 35_19** → **Lamentations 3_52** [[Lamentations ch_ 3.md]] (votes_ 2)
+- **Psalms 35_19** → **John 15_25** [[John ch_ 15.md]] (votes_ 6)
+- **Psalms 35_19** → **Proverbs 10_10** [[Proverbs ch_ 10.md]] (votes_ 4)
+- **Psalms 35_19** → **Proverbs 6_13** [[Proverbs ch_ 6.md]] (votes_ 5)
+- **Psalms 35_19** → **Psalms 119_161** [[Psalms ch_ 119.md]] (votes_ 2)
+- **Psalms 35_19** → **Psalms 13_4** [[Psalms ch_ 13.md]] (votes_ 5)
+- **Psalms 35_19** → **Psalms 38_19** [[Psalms ch_ 38.md]] (votes_ 5)
+- **Psalms 35_19** → **Psalms 35_15** [[Psalms ch_ 35.md]] (votes_ 2)
+- **Psalms 35_19** → **Psalms 109_3** [[Psalms ch_ 109.md]] (votes_ 3)
+- **Psalms 35_19** → **Psalms 38_16** [[Psalms ch_ 38.md]] (votes_ 3)
+- **Psalms 35_19** → **Job 15_12** [[Job ch_ 15.md]] (votes_ 2)
+- **Psalms 35_19** → **Psalms 25_2** [[Psalms ch_ 25.md]] (votes_ 2)
+- **Psalms 35_19** → **Psalms 69_4** [[Psalms ch_ 69.md]] (votes_ 8)
+- **Psalms 35_20** → **Acts 23_15** [[Acts ch_ 23.md]] (votes_ 3)
+- **Psalms 35_20** → **Psalms 38_12** [[Psalms ch_ 38.md]] (votes_ 3)
+- **Psalms 35_20** → **Daniel 6_5** [[Daniel ch_ 6.md]] (votes_ 3)
+- **Psalms 35_20** → **Matthew 12_24** [[Matthew ch_ 12.md]] (votes_ 3)
+- **Psalms 35_20** → **Matthew 12_19** [[Matthew ch_ 12.md]] (votes_ 3)
+- **Psalms 35_20** → **Acts 25_3** [[Acts ch_ 25.md]] (votes_ 3)
+- **Psalms 35_20** → **Jeremiah 11_19** [[Jeremiah ch_ 11.md]] (votes_ 3)
+- **Psalms 35_20** → **Matthew 26_4** [[Matthew ch_ 26.md]] (votes_ 3)
+- **Psalms 35_20** → **Psalms 52_2** [[Psalms ch_ 52.md]] (votes_ 3)
+- **Psalms 35_20** → **Psalms 31_13** [[Psalms ch_ 31.md]] (votes_ 3)
+- **Psalms 35_21** → **Psalms 70_3** [[Psalms ch_ 70.md]] (votes_ 4)
+- **Psalms 35_21** → **Psalms 40_15** [[Psalms ch_ 40.md]] (votes_ 5)
+- **Psalms 35_21** → **Psalms 22_13** [[Psalms ch_ 22.md]] (votes_ 5)
+- **Psalms 35_21** → **Psalms 54_7** [[Psalms ch_ 54.md]] (votes_ 2)
+- **Psalms 35_21** → **Isaiah 9_12** [[Isaiah ch_ 9.md]] (votes_ 2)
+- **Psalms 35_22** → **Psalms 83_1** [[Psalms ch_ 83.md]] (votes_ 3)
+- **Psalms 35_22** → **Psalms 22_11** [[Psalms ch_ 22.md]] (votes_ 4)
+- **Psalms 35_22** → **Isaiah 65_6** [[Isaiah ch_ 65.md]] (votes_ 3)
+- **Psalms 35_22** → **Acts 7_34** [[Acts ch_ 7.md]] (votes_ 2)
+- **Psalms 35_22** → **Exodus 3_7** [[Exodus ch_ 3.md]] (votes_ 8)
+- **Psalms 35_22** → **Psalms 22_19** [[Psalms ch_ 22.md]] (votes_ 3)
+- **Psalms 35_22** → **Psalms 28_1** [[Psalms ch_ 28.md]] (votes_ 6)
+- **Psalms 35_22** → **Psalms 38_21** [[Psalms ch_ 38.md]] (votes_ 4)
+- **Psalms 35_22** → **Psalms 10_1** [[Psalms ch_ 10.md]] (votes_ 8)
+- **Psalms 35_22** → **Psalms 71_12** [[Psalms ch_ 71.md]] (votes_ 4)
+- **Psalms 35_22** → **Psalms 50_21** [[Psalms ch_ 50.md]] (votes_ 3)
+- **Psalms 35_22** → **Psalms 39_12** [[Psalms ch_ 39.md]] (votes_ 3)
+- **Psalms 35_23** → **Isaiah 51_9** [[Isaiah ch_ 51.md]] (votes_ 4)
+- **Psalms 35_23** → **Psalms 44_23** [[Psalms ch_ 44.md]] (votes_ 8)
+- **Psalms 35_23** → **John 20_28** [[John ch_ 20.md]] (votes_ 4)
+- **Psalms 35_23** → **Psalms 7_6** [[Psalms ch_ 7.md]] (votes_ 8)
+- **Psalms 35_23** → **Psalms 59_4** [[Psalms ch_ 59.md]] (votes_ 4)
+- **Psalms 35_23** → **Psalms 80_2** [[Psalms ch_ 80.md]] (votes_ 4)
+- **Psalms 35_23** → **Psalms 142_5** [[Psalms ch_ 142.md]] (votes_ 4)
+- **Psalms 35_23** → **Psalms 89_26** [[Psalms ch_ 89.md]] (votes_ 4)
+- **Psalms 35_24** → **Job 20_5** [[Job ch_ 20.md]] (votes_ 2)
+- **Psalms 35_24** → **1 Peter 2_22** [[1 Peter ch_ 2.md]] (votes_ 2)
+- **Psalms 35_24** → **Psalms 35_19** [[Psalms ch_ 35.md]] (votes_ 3)
+- **Psalms 35_24** → **Psalms 26_1** [[Psalms ch_ 26.md]] (votes_ 5)
+- **Psalms 35_24** → **Psalms 7_8** [[Psalms ch_ 7.md]] (votes_ 4)
+- **Psalms 35_24** → **Psalms 43_1** [[Psalms ch_ 43.md]] (votes_ 5)
+- **Psalms 35_24** → **2 Thessalonians 1_6** [[2 Thessalonians ch_ 1.md]] (votes_ 2)
+- **Psalms 35_25** → **Psalms 70_3** [[Psalms ch_ 70.md]] (votes_ 1)
+- **Psalms 35_25** → **Mark 2_8** [[Mark ch_ 2.md]] (votes_ 2)
+- **Psalms 35_25** → **1 Corinthians 15_54** [[1 Corinthians ch_ 15.md]] (votes_ 2)
+- **Psalms 35_25** → **2 Samuel 20_19** [[2 Samuel ch_ 20.md]] (votes_ 2)
+- **Psalms 35_25** → **Psalms 28_3** [[Psalms ch_ 28.md]] (votes_ 2)
+- **Psalms 35_25** → **Psalms 124_3** [[Psalms ch_ 124.md]] (votes_ 3)
+- **Psalms 35_25** → **Lamentations 2_16** [[Lamentations ch_ 2.md]] (votes_ 4)
+- **Psalms 35_25** → **Matthew 27_43** [[Matthew ch_ 27.md]] (votes_ 2)
+- **Psalms 35_25** → **Job 1_5** [[Job ch_ 1.md]] (votes_ 2)
+- **Psalms 35_25** → **Psalms 27_12** [[Psalms ch_ 27.md]] (votes_ 2)
+- **Psalms 35_25** → **Mark 2_6** [[Mark ch_ 2.md]] (votes_ 2)
+- **Psalms 35_25** → **Psalms 57_3** [[Psalms ch_ 57.md]] (votes_ 2)
+- **Psalms 35_25** → **Psalms 140_8** [[Psalms ch_ 140.md]] (votes_ 2)
+- **Psalms 35_25** → **Psalms 74_8** [[Psalms ch_ 74.md]] (votes_ 2)
+- **Psalms 35_25** → **Exodus 15_9** [[Exodus ch_ 15.md]] (votes_ 2)
+- **Psalms 35_26** → **Isaiah 41_11** [[Isaiah ch_ 41.md]] (votes_ 2)
+- **Psalms 35_26** → **Psalms 71_13** [[Psalms ch_ 71.md]] (votes_ 2)
+- **Psalms 35_26** → **Daniel 11_36** [[Daniel ch_ 11.md]] (votes_ 2)
+- **Psalms 35_26** → **Psalms 35_4** [[Psalms ch_ 35.md]] (votes_ 2)
+- **Psalms 35_26** → **Psalms 38_16** [[Psalms ch_ 38.md]] (votes_ 5)
+- **Psalms 35_26** → **Jeremiah 48_26** [[Jeremiah ch_ 48.md]] (votes_ 2)
+- **Psalms 35_26** → **1 Peter 5_5** [[1 Peter ch_ 5.md]] (votes_ 2)
+- **Psalms 35_26** → **Psalms 129_5** [[Psalms ch_ 129.md]] (votes_ 2)
+- **Psalms 35_26** → **Job 19_5** [[Job ch_ 19.md]] (votes_ 4)
+- **Psalms 35_26** → **Job 8_22** [[Job ch_ 8.md]] (votes_ 4)
+- **Psalms 35_26** → **Psalms 132_18** [[Psalms ch_ 132.md]] (votes_ 4)
+- **Psalms 35_26** → **Psalms 55_12** [[Psalms ch_ 55.md]] (votes_ 2)
+- **Psalms 35_27** → **Psalms 32_11** [[Psalms ch_ 32.md]] (votes_ 4)
+- **Psalms 35_27** → **Romans 12_15** [[Romans ch_ 12.md]] (votes_ 5)
+- **Psalms 35_27** → **Psalms 149_4** [[Psalms ch_ 149.md]] (votes_ 12)
+- **Psalms 35_27** → **Proverbs 8_18** [[Proverbs ch_ 8.md]] (votes_ 9)
+- **Psalms 35_27** → **Psalms 142_7** [[Psalms ch_ 142.md]] (votes_ 7)
+- **Psalms 35_27** → **Zephaniah 3_14** [[Zephaniah ch_ 3.md]] (votes_ 4)
+- **Psalms 35_27** → **Psalms 9_4** [[Psalms ch_ 9.md]] (votes_ 4)
+- **Psalms 35_27** → **Psalms 68_3** [[Psalms ch_ 68.md]] (votes_ 4)
+- **Psalms 35_27** → **John 16_22** [[John ch_ 16.md]] (votes_ 5)
+- **Psalms 35_27** → **Psalms 132_9** [[Psalms ch_ 132.md]] (votes_ 3)
+- **Psalms 35_27** → **Psalms 70_4** [[Psalms ch_ 70.md]] (votes_ 8)
+- **Psalms 35_27** → **Psalms 40_16** [[Psalms ch_ 40.md]] (votes_ 10)
+- **Psalms 35_27** → **Psalms 132_16** [[Psalms ch_ 132.md]] (votes_ 5)
+- **Psalms 35_27** → **1 Corinthians 12_26** [[1 Corinthians ch_ 12.md]] (votes_ 6)
+- **Psalms 35_27** → **Zephaniah 3_17** [[Zephaniah ch_ 3.md]] (votes_ 9)
+- **Psalms 35_27** → **Psalms 147_11** [[Psalms ch_ 147.md]] (votes_ 7)
+- **Psalms 35_28** → **Psalms 71_15** [[Psalms ch_ 71.md]] (votes_ 2)
+- **Psalms 35_28** → **Psalms 34_1** [[Psalms ch_ 34.md]] (votes_ 2)
+- **Psalms 35_28** → **Psalms 71_24** [[Psalms ch_ 71.md]] (votes_ 7)
+- **Psalms 35_28** → **Psalms 145_5** [[Psalms ch_ 145.md]] (votes_ 3)
+- **Psalms 35_28** → **Psalms 50_15** [[Psalms ch_ 50.md]] (votes_ 2)
+- **Psalms 35_28** → **Psalms 145_21** [[Psalms ch_ 145.md]] (votes_ 6)

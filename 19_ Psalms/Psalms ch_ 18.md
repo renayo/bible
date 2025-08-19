@@ -1,0 +1,536 @@
+# Psalms 18
+
+**1** ¶ To the chief Musician, [A Psalm] of David, the servant of the LORD, who spake unto the LORD the words of this song in the day [that] the LORD delivered him from the hand of all his enemies, and from the hand of Saul_ And he said, I will love thee, O LORD, my strength.
+
+**2** The LORD [is] my rock, and my fortress, and my deliverer; my God, my strength, in whom I will trust; my buckler, and the horn of my salvation, [and] my high tower.
+
+**3** I will call upon the LORD, [who is worthy] to be praised_ so shall I be saved from mine enemies.
+
+**4** The sorrows of death compassed me, and the floods of ungodly men made me afraid.
+
+**5** The sorrows of hell compassed me about_ the snares of death prevented me.
+
+**6** In my distress I called upon the LORD, and cried unto my God_ he heard my voice out of his temple, and my cry came before him, [even] into his ears.
+
+**7** Then the earth shook and trembled; the foundations also of the hills moved and were shaken, because he was wroth.
+
+**8** There went up a smoke out of his nostrils, and fire out of his mouth devoured_ coals were kindled by it.
+
+**9** He bowed the heavens also, and came down_ and darkness [was] under his feet.
+
+**10** And he rode upon a cherub, and did fly_ yea, he did fly upon the wings of the wind.
+
+**11** He made darkness his secret place; his pavilion round about him [were] dark waters [and] thick clouds of the skies.
+
+**12** At the brightness [that was] before him his thick clouds passed, hail [stones] and coals of fire.
+
+**13** The LORD also thundered in the heavens, and the Highest gave his voice; hail [stones] and coals of fire.
+
+**14** Yea, he sent out his arrows, and scattered them; and he shot out lightnings, and discomfited them.
+
+**15** Then the channels of waters were seen, and the foundations of the world were discovered at thy rebuke, O LORD, at the blast of the breath of thy nostrils.
+
+**16** He sent from above, he took me, he drew me out of many waters.
+
+**17** He delivered me from my strong enemy, and from them which hated me_ for they were too strong for me.
+
+**18** They prevented me in the day of my calamity_ but the LORD was my stay.
+
+**19** He brought me forth also into a large place; he delivered me, because he delighted in me.
+
+**20** ¶ The LORD rewarded me according to my righteousness; according to the cleanness of my hands hath he recompensed me.
+
+**21** For I have kept the ways of the LORD, and have not wickedly departed from my God.
+
+**22** For all his judgments [were] before me, and I did not put away his statutes from me.
+
+**23** I was also upright before him, and I kept myself from mine iniquity.
+
+**24** Therefore hath the LORD recompensed me according to my righteousness, according to the cleanness of my hands in his eyesight.
+
+**25** With the merciful thou wilt shew thyself merciful; with an upright man thou wilt shew thyself upright;
+
+**26** With the pure thou wilt shew thyself pure; and with the froward thou wilt shew thyself froward.
+
+**27** For thou wilt save the afflicted people; but wilt bring down high looks.
+
+**28** For thou wilt light my candle_ the LORD my God will enlighten my darkness.
+
+**29** ¶ For by thee I have run through a troop; and by my God have I leaped over a wall.
+
+**30** [As for] God, his way [is] perfect_ the word of the LORD is tried_ he [is] a buckler to all those that trust in him.
+
+**31** For who [is] God save the LORD? or who [is] a rock save our God?
+
+**32** [It is] God that girdeth me with strength, and maketh my way perfect.
+
+**33** He maketh my feet like hinds' [feet], and setteth me upon my high places.
+
+**34** He teacheth my hands to war, so that a bow of steel is broken by mine arms.
+
+**35** Thou hast also given me the shield of thy salvation_ and thy right hand hath holden me up, and thy gentleness hath made me great.
+
+**36** Thou hast enlarged my steps under me, that my feet did not slip.
+
+**37** I have pursued mine enemies, and overtaken them_ neither did I turn again till they were consumed.
+
+**38** I have wounded them that they were not able to rise_ they are fallen under my feet.
+
+**39** For thou hast girded me with strength unto the battle_ thou hast subdued under me those that rose up against me.
+
+**40** Thou hast also given me the necks of mine enemies; that I might destroy them that hate me.
+
+**41** They cried, but [there was] none to save [them_ even] unto the LORD, but he answered them not.
+
+**42** Then did I beat them small as the dust before the wind_ I did cast them out as the dirt in the streets.
+
+**43** Thou hast delivered me from the strivings of the people; [and] thou hast made me the head of the heathen_ a people [whom] I have not known shall serve me.
+
+**44** As soon as they hear of me, they shall obey me_ the strangers shall submit themselves unto me.
+
+**45** The strangers shall fade away, and be afraid out of their close places.
+
+**46** The LORD liveth; and blessed [be] my rock; and let the God of my salvation be exalted.
+
+**47** [It is] God that avengeth me, and subdueth the people under me.
+
+**48** He delivereth me from mine enemies_ yea, thou liftest me up above those that rise up against me_ thou hast delivered me from the violent man.
+
+**49** Therefore will I give thanks unto thee, O LORD, among the heathen, and sing praises unto thy name.
+
+**50** Great deliverance giveth he to his king; and sheweth mercy to his anointed, to David, and to his seed for evermore.
+
+---
+
+## Cross-References
+
+- **Psalms 18_1** → **Philippians 4_13** [[Philippians ch_ 4.md]] (votes_ 13)
+- **Psalms 18_1** → **Psalms 18_32** [[Psalms ch_ 18.md]] (votes_ 7)
+- **Psalms 18_1** → **Psalms 116_16** [[Psalms ch_ 116.md]] (votes_ 6)
+- **Psalms 18_1** → **Hebrews 3_5** [[Hebrews ch_ 3.md]] (votes_ 4)
+- **Psalms 18_1** → **Acts 13_36** [[Acts ch_ 13.md]] (votes_ 5)
+- **Psalms 18_1** → **1 John 4_19** [[1 John ch_ 4.md]] (votes_ 19)
+- **Psalms 18_1** → **Psalms 34_19** [[Psalms ch_ 34.md]] (votes_ 10)
+- **Psalms 18_1** → **Psalms 36_1** [[Psalms ch_ 36.md]] (votes_ 7)
+- **Psalms 18_1** → **Psalms 118_14** [[Psalms ch_ 118.md]] (votes_ 9)
+- **Psalms 18_1** → **Colossians 1_11** [[Colossians ch_ 1.md]] (votes_ 23)
+- **Psalms 18_2** → **2 Samuel 22_3** [[2 Samuel ch_ 22.md]] (votes_ 23)
+- **Psalms 18_2** → **Psalms 62_2** [[Psalms ch_ 62.md]] (votes_ 24)
+- **Psalms 18_2** → **Proverbs 2_7** [[Proverbs ch_ 2.md]] (votes_ 14)
+- **Psalms 18_2** → **Psalms 91_4** [[Psalms ch_ 91.md]] (votes_ 18)
+- **Psalms 18_2** → **Psalms 75_10** [[Psalms ch_ 75.md]] (votes_ 5)
+- **Psalms 18_2** → **Psalms 62_7** [[Psalms ch_ 62.md]] (votes_ 38)
+- **Psalms 18_2** → **Hebrews 2_13** [[Hebrews ch_ 2.md]] (votes_ 14)
+- **Psalms 18_2** → **Isaiah 32_2** [[Isaiah ch_ 32.md]] (votes_ 20)
+- **Psalms 18_2** → **Jeremiah 16_19** [[Jeremiah ch_ 16.md]] (votes_ 21)
+- **Psalms 18_2** → **Psalms 19_14** [[Psalms ch_ 19.md]] (votes_ 32)
+- **Psalms 18_2** → **Psalms 144_2** [[Psalms ch_ 144.md]] (votes_ 45)
+- **Psalms 18_2** → **Psalms 132_17** [[Psalms ch_ 132.md]] (votes_ 4)
+- **Psalms 18_2** → **Psalms 28_1** [[Psalms ch_ 28.md]] (votes_ 12)
+- **Psalms 18_2** → **Psalms 91_2** [[Psalms ch_ 91.md]] (votes_ 32)
+- **Psalms 18_2** → **Psalms 59_11** [[Psalms ch_ 59.md]] (votes_ 6)
+- **Psalms 18_2** → **Proverbs 18_10** [[Proverbs ch_ 18.md]] (votes_ 30)
+- **Psalms 18_3** → **2 Samuel 22_4** [[2 Samuel ch_ 22.md]] (votes_ 8)
+- **Psalms 18_3** → **Luke 1_71** [[Luke ch_ 1.md]] (votes_ 10)
+- **Psalms 18_3** → **Psalms 76_4** [[Psalms ch_ 76.md]] (votes_ 1)
+- **Psalms 18_3** → **Acts 2_21** [[Acts ch_ 2.md]] (votes_ 2)
+- **Psalms 18_3** → **Psalms 48_1** [[Psalms ch_ 48.md]] (votes_ 1)
+- **Psalms 18_3** → **Psalms 62_8** [[Psalms ch_ 62.md]] (votes_ 10)
+- **Psalms 18_3** → **Psalms 55_16** [[Psalms ch_ 55.md]] (votes_ 6)
+- **Psalms 18_3** → **Nehemiah 9_5** [[Nehemiah ch_ 9.md]] (votes_ 4)
+- **Psalms 18_3** → **Psalms 96_4** [[Psalms ch_ 96.md]] (votes_ 6)
+- **Psalms 18_3** → **Psalms 145_3** [[Psalms ch_ 145.md]] (votes_ 10)
+- **Psalms 18_3** → **Psalms 91_15** [[Psalms ch_ 91.md]] (votes_ 13)
+- **Psalms 18_3** → **Psalms 50_15** [[Psalms ch_ 50.md]] (votes_ 4)
+- **Psalms 18_3** → **Revelation 4_11** [[Revelation ch_ 4.md]] (votes_ 3)
+- **Psalms 18_4** → **Isaiah 13_8** [[Isaiah ch_ 13.md]] (votes_ 2)
+- **Psalms 18_4** → **Matthew 26_55** [[Matthew ch_ 26.md]] (votes_ 2)
+- **Psalms 18_4** → **Matthew 26_47** [[Matthew ch_ 26.md]] (votes_ 3)
+- **Psalms 18_4** → **Acts 21_30** [[Acts ch_ 21.md]] (votes_ 2)
+- **Psalms 18_4** → **Psalms 116_3** [[Psalms ch_ 116.md]] (votes_ 7)
+- **Psalms 18_4** → **2 Corinthians 1_9** [[2 Corinthians ch_ 1.md]] (votes_ 4)
+- **Psalms 18_4** → **Psalms 22_16** [[Psalms ch_ 22.md]] (votes_ 3)
+- **Psalms 18_4** → **Psalms 124_4** [[Psalms ch_ 124.md]] (votes_ 3)
+- **Psalms 18_5** → **Ecclesiastes 9_12** [[Ecclesiastes ch_ 9.md]] (votes_ 2)
+- **Psalms 18_5** → **Psalms 116_3** [[Psalms ch_ 116.md]] (votes_ 2)
+- **Psalms 18_5** → **Acts 2_24** [[Acts ch_ 2.md]] (votes_ 3)
+- **Psalms 18_5** → **Psalms 86_13** [[Psalms ch_ 86.md]] (votes_ 4)
+- **Psalms 18_6** → **2 Chronicles 30_27** [[2 Chronicles ch_ 30.md]] (votes_ 10)
+- **Psalms 18_6** → **Psalms 11_4** [[Psalms ch_ 11.md]] (votes_ 8)
+- **Psalms 18_6** → **2 Samuel 22_7** [[2 Samuel ch_ 22.md]] (votes_ 22)
+- **Psalms 18_6** → **Acts 12_5** [[Acts ch_ 12.md]] (votes_ 10)
+- **Psalms 18_6** → **Psalms 120_1** [[Psalms ch_ 120.md]] (votes_ 15)
+- **Psalms 18_6** → **Psalms 50_15** [[Psalms ch_ 50.md]] (votes_ 26)
+- **Psalms 18_6** → **Exodus 2_23** [[Exodus ch_ 2.md]] (votes_ 10)
+- **Psalms 18_6** → **Mark 14_36** [[Mark ch_ 14.md]] (votes_ 5)
+- **Psalms 18_6** → **Psalms 34_15** [[Psalms ch_ 34.md]] (votes_ 20)
+- **Psalms 18_6** → **Habakkuk 2_20** [[Habakkuk ch_ 2.md]] (votes_ 9)
+- **Psalms 18_6** → **Psalms 5_7** [[Psalms ch_ 5.md]] (votes_ 8)
+- **Psalms 18_6** → **Revelation 11_19** [[Revelation ch_ 11.md]] (votes_ 6)
+- **Psalms 18_7** → **Deuteronomy 32_22** [[Deuteronomy ch_ 32.md]] (votes_ 3)
+- **Psalms 18_7** → **1 Corinthians 13_2** [[1 Corinthians ch_ 13.md]] (votes_ 2)
+- **Psalms 18_7** → **Matthew 28_2** [[Matthew ch_ 28.md]] (votes_ 2)
+- **Psalms 18_7** → **Habakkuk 3_10** [[Habakkuk ch_ 3.md]] (votes_ 2)
+- **Psalms 18_7** → **Zechariah 14_4** [[Zechariah ch_ 14.md]] (votes_ 2)
+- **Psalms 18_7** → **Habakkuk 3_6** [[Habakkuk ch_ 3.md]] (votes_ 2)
+- **Psalms 18_7** → **Acts 4_31** [[Acts ch_ 4.md]] (votes_ 4)
+- **Psalms 18_7** → **Judges 5_4** [[Judges ch_ 5.md]] (votes_ 3)
+- **Psalms 18_7** → **Psalms 46_2** [[Psalms ch_ 46.md]] (votes_ 1)
+- **Psalms 18_7** → **Jeremiah 4_24** [[Jeremiah ch_ 4.md]] (votes_ 3)
+- **Psalms 18_8** → **Amos 4_11** [[Amos ch_ 4.md]] (votes_ 3)
+- **Psalms 18_8** → **Psalms 74_1** [[Psalms ch_ 74.md]] (votes_ 2)
+- **Psalms 18_8** → **Daniel 7_10** [[Daniel ch_ 7.md]] (votes_ 3)
+- **Psalms 18_8** → **Psalms 50_3** [[Psalms ch_ 50.md]] (votes_ 2)
+- **Psalms 18_8** → **Deuteronomy 29_20** [[Deuteronomy ch_ 29.md]] (votes_ 2)
+- **Psalms 18_8** → **Psalms 21_9** [[Psalms ch_ 21.md]] (votes_ 6)
+- **Psalms 18_8** → **Numbers 16_35** [[Numbers ch_ 16.md]] (votes_ 3)
+- **Psalms 18_8** → **Leviticus 10_2** [[Leviticus ch_ 10.md]] (votes_ 3)
+- **Psalms 18_8** → **Revelation 11_5** [[Revelation ch_ 11.md]] (votes_ 2)
+- **Psalms 18_8** → **Psalms 104_32** [[Psalms ch_ 104.md]] (votes_ 2)
+- **Psalms 18_8** → **Numbers 11_1** [[Numbers ch_ 11.md]] (votes_ 2)
+- **Psalms 18_8** → **Genesis 19_28** [[Genesis ch_ 19.md]] (votes_ 3)
+- **Psalms 18_8** → **Psalms 11_6** [[Psalms ch_ 11.md]] (votes_ 5)
+- **Psalms 18_9** → **2 Peter 3_10** [[2 Peter ch_ 3.md]] (votes_ 2)
+- **Psalms 18_9** → **John 13_7** [[John ch_ 13.md]] (votes_ 2)
+- **Psalms 18_9** → **Matthew 24_29** [[Matthew ch_ 24.md]] (votes_ 2)
+- **Psalms 18_9** → **Joel 3_16** [[Joel ch_ 3.md]] (votes_ 2)
+- **Psalms 18_9** → **Mark 15_33** [[Mark ch_ 15.md]] (votes_ 2)
+- **Psalms 18_9** → **Isaiah 51_6** [[Isaiah ch_ 51.md]] (votes_ 1)
+- **Psalms 18_9** → **Psalms 68_4** [[Psalms ch_ 68.md]] (votes_ 1)
+- **Psalms 18_9** → **2 Samuel 22_10** [[2 Samuel ch_ 22.md]] (votes_ 2)
+- **Psalms 18_9** → **Hebrews 12_26** [[Hebrews ch_ 12.md]] (votes_ 2)
+- **Psalms 18_9** → **Revelation 20_11** [[Revelation ch_ 20.md]] (votes_ 2)
+- **Psalms 18_9** → **Deuteronomy 33_26** [[Deuteronomy ch_ 33.md]] (votes_ 3)
+- **Psalms 18_10** → **Psalms 104_3** [[Psalms ch_ 104.md]] (votes_ 5)
+- **Psalms 18_10** → **Psalms 80_1** [[Psalms ch_ 80.md]] (votes_ 2)
+- **Psalms 18_10** → **Psalms 99_1** [[Psalms ch_ 99.md]] (votes_ 3)
+- **Psalms 18_11** → **Joel 2_2** [[Joel ch_ 2.md]] (votes_ 3)
+- **Psalms 18_11** → **Deuteronomy 4_11** [[Deuteronomy ch_ 4.md]] (votes_ 8)
+- **Psalms 18_11** → **Psalms 91_1** [[Psalms ch_ 91.md]] (votes_ 3)
+- **Psalms 18_11** → **Psalms 27_5** [[Psalms ch_ 27.md]] (votes_ 2)
+- **Psalms 18_11** → **Psalms 81_7** [[Psalms ch_ 81.md]] (votes_ 3)
+- **Psalms 18_11** → **Psalms 97_2** [[Psalms ch_ 97.md]] (votes_ 8)
+- **Psalms 18_12** → **Revelation 16_21** [[Revelation ch_ 16.md]] (votes_ 3)
+- **Psalms 18_12** → **Psalms 104_2** [[Psalms ch_ 104.md]] (votes_ 2)
+- **Psalms 18_12** → **Matthew 17_5** [[Matthew ch_ 17.md]] (votes_ 3)
+- **Psalms 18_12** → **Joshua 10_11** [[Joshua ch_ 10.md]] (votes_ 5)
+- **Psalms 18_12** → **Matthew 17_2** [[Matthew ch_ 17.md]] (votes_ 3)
+- **Psalms 18_13** → **Psalms 78_48** [[Psalms ch_ 78.md]] (votes_ 2)
+- **Psalms 18_13** → **Job 40_9** [[Job ch_ 40.md]] (votes_ 2)
+- **Psalms 18_13** → **Deuteronomy 32_24** [[Deuteronomy ch_ 32.md]] (votes_ 2)
+- **Psalms 18_13** → **John 12_29** [[John ch_ 12.md]] (votes_ 2)
+- **Psalms 18_13** → **Revelation 8_5** [[Revelation ch_ 8.md]] (votes_ 2)
+- **Psalms 18_13** → **Exodus 20_18** [[Exodus ch_ 20.md]] (votes_ 2)
+- **Psalms 18_13** → **Revelation 4_5** [[Revelation ch_ 4.md]] (votes_ 2)
+- **Psalms 18_13** → **Psalms 140_10** [[Psalms ch_ 140.md]] (votes_ 3)
+- **Psalms 18_13** → **1 Samuel 7_10** [[1 Samuel ch_ 7.md]] (votes_ 5)
+- **Psalms 18_13** → **Habakkuk 3_5** [[Habakkuk ch_ 3.md]] (votes_ 2)
+- **Psalms 18_13** → **Ezekiel 10_5** [[Ezekiel ch_ 10.md]] (votes_ 2)
+- **Psalms 18_13** → **Revelation 19_6** [[Revelation ch_ 19.md]] (votes_ 2)
+- **Psalms 18_13** → **Psalms 104_7** [[Psalms ch_ 104.md]] (votes_ 6)
+- **Psalms 18_14** → **Habakkuk 3_11** [[Habakkuk ch_ 3.md]] (votes_ 4)
+- **Psalms 18_14** → **Psalms 144_6** [[Psalms ch_ 144.md]] (votes_ 6)
+- **Psalms 18_14** → **Isaiah 30_30** [[Isaiah ch_ 30.md]] (votes_ 3)
+- **Psalms 18_14** → **Deuteronomy 32_42** [[Deuteronomy ch_ 32.md]] (votes_ 3)
+- **Psalms 18_14** → **Joshua 10_10** [[Joshua ch_ 10.md]] (votes_ 3)
+- **Psalms 18_14** → **Numbers 24_8** [[Numbers ch_ 24.md]] (votes_ 3)
+- **Psalms 18_14** → **Job 6_4** [[Job ch_ 6.md]] (votes_ 3)
+- **Psalms 18_14** → **Job 38_35** [[Job ch_ 38.md]] (votes_ 2)
+- **Psalms 18_14** → **Deuteronomy 32_23** [[Deuteronomy ch_ 32.md]] (votes_ 3)
+- **Psalms 18_14** → **Psalms 77_17** [[Psalms ch_ 77.md]] (votes_ 3)
+- **Psalms 18_14** → **Psalms 21_12** [[Psalms ch_ 21.md]] (votes_ 2)
+- **Psalms 18_15** → **Isaiah 11_4** [[Isaiah ch_ 11.md]] (votes_ 2)
+- **Psalms 18_15** → **Job 4_9** [[Job ch_ 4.md]] (votes_ 4)
+- **Psalms 18_15** → **Psalms 76_6** [[Psalms ch_ 76.md]] (votes_ 4)
+- **Psalms 18_15** → **Jeremiah 31_37** [[Jeremiah ch_ 31.md]] (votes_ 4)
+- **Psalms 18_15** → **Isaiah 30_33** [[Isaiah ch_ 30.md]] (votes_ 1)
+- **Psalms 18_15** → **Psalms 74_15** [[Psalms ch_ 74.md]] (votes_ 3)
+- **Psalms 18_15** → **Psalms 106_9** [[Psalms ch_ 106.md]] (votes_ 7)
+- **Psalms 18_15** → **Exodus 15_8** [[Exodus ch_ 15.md]] (votes_ 5)
+- **Psalms 18_15** → **2 Kings 19_7** [[2 Kings ch_ 19.md]] (votes_ 3)
+- **Psalms 18_15** → **Jonah 2_6** [[Jonah ch_ 2.md]] (votes_ 2)
+- **Psalms 18_15** → **Psalms 104_5** [[Psalms ch_ 104.md]] (votes_ 4)
+- **Psalms 18_15** → **2 Samuel 22_16** [[2 Samuel ch_ 22.md]] (votes_ 4)
+- **Psalms 18_15** → **Micah 6_2** [[Micah ch_ 6.md]] (votes_ 5)
+- **Psalms 18_16** → **Psalms 57_3** [[Psalms ch_ 57.md]] (votes_ 7)
+- **Psalms 18_16** → **Psalms 18_43** [[Psalms ch_ 18.md]] (votes_ 6)
+- **Psalms 18_16** → **Exodus 2_10** [[Exodus ch_ 2.md]] (votes_ 5)
+- **Psalms 18_16** → **Revelation 17_15** [[Revelation ch_ 17.md]] (votes_ 4)
+- **Psalms 18_16** → **Psalms 144_7** [[Psalms ch_ 144.md]] (votes_ 9)
+- **Psalms 18_16** → **Psalms 32_6** [[Psalms ch_ 32.md]] (votes_ 5)
+- **Psalms 18_16** → **2 Samuel 22_17** [[2 Samuel ch_ 22.md]] (votes_ 11)
+- **Psalms 18_17** → **2 Samuel 22_18** [[2 Samuel ch_ 22.md]] (votes_ 2)
+- **Psalms 18_17** → **Psalms 142_6** [[Psalms ch_ 142.md]] (votes_ 6)
+- **Psalms 18_17** → **Psalms 35_10** [[Psalms ch_ 35.md]] (votes_ 6)
+- **Psalms 18_17** → **Psalms 38_19** [[Psalms ch_ 38.md]] (votes_ 2)
+- **Psalms 18_17** → **Psalms 25_19** [[Psalms ch_ 25.md]] (votes_ 1)
+- **Psalms 18_17** → **Luke 19_14** [[Luke ch_ 19.md]] (votes_ 0)
+- **Psalms 18_17** → **Psalms 118_7** [[Psalms ch_ 118.md]] (votes_ 3)
+- **Psalms 18_17** → **Psalms 9_13** [[Psalms ch_ 9.md]] (votes_ 2)
+- **Psalms 18_17** → **Job 16_9** [[Job ch_ 16.md]] (votes_ 6)
+- **Psalms 18_17** → **2 Samuel 22_1** [[2 Samuel ch_ 22.md]] (votes_ 2)
+- **Psalms 18_18** → **1 Samuel 30_6** [[1 Samuel ch_ 30.md]] (votes_ 3)
+- **Psalms 18_18** → **Psalms 59_16** [[Psalms ch_ 59.md]] (votes_ 4)
+- **Psalms 18_18** → **2 Samuel 22_19** [[2 Samuel ch_ 22.md]] (votes_ 3)
+- **Psalms 18_18** → **Psalms 46_11** [[Psalms ch_ 46.md]] (votes_ 4)
+- **Psalms 18_18** → **Zechariah 1_15** [[Zechariah ch_ 1.md]] (votes_ 3)
+- **Psalms 18_18** → **Deuteronomy 32_35** [[Deuteronomy ch_ 32.md]] (votes_ 4)
+- **Psalms 18_18** → **Jeremiah 18_17** [[Jeremiah ch_ 18.md]] (votes_ 4)
+- **Psalms 18_19** → **Psalms 118_5** [[Psalms ch_ 118.md]] (votes_ 19)
+- **Psalms 18_19** → **Psalms 37_23** [[Psalms ch_ 37.md]] (votes_ 11)
+- **Psalms 18_19** → **Job 36_16** [[Job ch_ 36.md]] (votes_ 13)
+- **Psalms 18_19** → **Psalms 31_8** [[Psalms ch_ 31.md]] (votes_ 18)
+- **Psalms 18_19** → **Psalms 18_36** [[Psalms ch_ 18.md]] (votes_ 16)
+- **Psalms 18_19** → **1 Kings 10_9** [[1 Kings ch_ 10.md]] (votes_ 10)
+- **Psalms 18_19** → **Psalms 40_2** [[Psalms ch_ 40.md]] (votes_ 14)
+- **Psalms 18_20** → **Hebrews 7_26** [[Hebrews ch_ 7.md]] (votes_ 3)
+- **Psalms 18_20** → **Psalms 18_24** [[Psalms ch_ 18.md]] (votes_ 3)
+- **Psalms 18_20** → **Psalms 24_4** [[Psalms ch_ 24.md]] (votes_ 10)
+- **Psalms 18_20** → **Matthew 6_4** [[Matthew ch_ 6.md]] (votes_ 5)
+- **Psalms 18_20** → **1 Samuel 24_17** [[1 Samuel ch_ 24.md]] (votes_ 2)
+- **Psalms 18_20** → **Isaiah 62_11** [[Isaiah ch_ 62.md]] (votes_ 3)
+- **Psalms 18_20** → **Psalms 58_11** [[Psalms ch_ 58.md]] (votes_ 5)
+- **Psalms 18_20** → **Proverbs 11_18** [[Proverbs ch_ 11.md]] (votes_ 4)
+- **Psalms 18_20** → **Psalms 26_6** [[Psalms ch_ 26.md]] (votes_ 2)
+- **Psalms 18_20** → **1 Corinthians 3_8** [[1 Corinthians ch_ 3.md]] (votes_ 5)
+- **Psalms 18_20** → **Job 22_30** [[Job ch_ 22.md]] (votes_ 4)
+- **Psalms 18_20** → **Psalms 7_8** [[Psalms ch_ 7.md]] (votes_ 3)
+- **Psalms 18_20** → **Isaiah 49_4** [[Isaiah ch_ 49.md]] (votes_ 3)
+- **Psalms 18_20** → **Psalms 7_3** [[Psalms ch_ 7.md]] (votes_ 3)
+- **Psalms 18_21** → **1 John 2_19** [[1 John ch_ 2.md]] (votes_ 6)
+- **Psalms 18_21** → **Psalms 119_102** [[Psalms ch_ 119.md]] (votes_ 8)
+- **Psalms 18_21** → **Proverbs 8_32** [[Proverbs ch_ 8.md]] (votes_ 6)
+- **Psalms 18_21** → **2 Chronicles 34_33** [[2 Chronicles ch_ 34.md]] (votes_ 5)
+- **Psalms 18_21** → **Acts 24_16** [[Acts ch_ 24.md]] (votes_ 6)
+- **Psalms 18_21** → **Psalms 26_1** [[Psalms ch_ 26.md]] (votes_ 6)
+- **Psalms 18_21** → **Psalms 17_4** [[Psalms ch_ 17.md]] (votes_ 6)
+- **Psalms 18_21** → **1 Samuel 15_11** [[1 Samuel ch_ 15.md]] (votes_ 4)
+- **Psalms 18_21** → **1 Thessalonians 2_10** [[1 Thessalonians ch_ 2.md]] (votes_ 5)
+- **Psalms 18_22** → **Psalms 119_117** [[Psalms ch_ 119.md]] (votes_ 4)
+- **Psalms 18_22** → **Psalms 119_30** [[Psalms ch_ 119.md]] (votes_ 5)
+- **Psalms 18_22** → **Psalms 119_128** [[Psalms ch_ 119.md]] (votes_ 4)
+- **Psalms 18_22** → **Psalms 119_13** [[Psalms ch_ 119.md]] (votes_ 7)
+- **Psalms 18_22** → **John 5_14** [[John ch_ 5.md]] (votes_ 3)
+- **Psalms 18_22** → **Psalms 119_112** [[Psalms ch_ 119.md]] (votes_ 6)
+- **Psalms 18_23** → **Psalms 11_7** [[Psalms ch_ 11.md]] (votes_ 5)
+- **Psalms 18_23** → **1 Samuel 26_23** [[1 Samuel ch_ 26.md]] (votes_ 5)
+- **Psalms 18_23** → **Psalms 37_27** [[Psalms ch_ 37.md]] (votes_ 5)
+- **Psalms 18_23** → **Psalms 17_3** [[Psalms ch_ 17.md]] (votes_ 5)
+- **Psalms 18_23** → **1 Chronicles 29_17** [[1 Chronicles ch_ 29.md]] (votes_ 5)
+- **Psalms 18_24** → **Ruth 2_12** [[Ruth ch_ 2.md]] (votes_ 5)
+- **Psalms 18_24** → **Hebrews 6_16** [[Hebrews ch_ 6.md]] (votes_ 3)
+- **Psalms 18_24** → **1 Samuel 26_23** [[1 Samuel ch_ 26.md]] (votes_ 4)
+- **Psalms 18_25** → **Matthew 5_7** [[Matthew ch_ 5.md]] (votes_ 12)
+- **Psalms 18_25** → **Romans 9_14** [[Romans ch_ 9.md]] (votes_ 2)
+- **Psalms 18_25** → **Psalms 62_12** [[Psalms ch_ 62.md]] (votes_ 7)
+- **Psalms 18_25** → **Nehemiah 9_17** [[Nehemiah ch_ 9.md]] (votes_ 3)
+- **Psalms 18_25** → **1 Kings 8_32** [[1 Kings ch_ 8.md]] (votes_ 3)
+- **Psalms 18_25** → **Isaiah 26_7** [[Isaiah ch_ 26.md]] (votes_ 2)
+- **Psalms 18_26** → **Proverbs 3_34** [[Proverbs ch_ 3.md]] (votes_ 9)
+- **Psalms 18_26** → **James 2_13** [[James ch_ 2.md]] (votes_ 3)
+- **Psalms 18_26** → **Romans 2_9** [[Romans ch_ 2.md]] (votes_ 1)
+- **Psalms 18_27** → **Psalms 10_4** [[Psalms ch_ 10.md]] (votes_ 3)
+- **Psalms 18_27** → **Psalms 101_5** [[Psalms ch_ 101.md]] (votes_ 6)
+- **Psalms 18_27** → **Isaiah 66_2** [[Isaiah ch_ 66.md]] (votes_ 7)
+- **Psalms 18_27** → **Luke 18_14** [[Luke ch_ 18.md]] (votes_ 2)
+- **Psalms 18_27** → **Psalms 34_19** [[Psalms ch_ 34.md]] (votes_ 3)
+- **Psalms 18_27** → **James 2_5** [[James ch_ 2.md]] (votes_ 7)
+- **Psalms 18_27** → **Psalms 17_13** [[Psalms ch_ 17.md]] (votes_ 3)
+- **Psalms 18_27** → **2 Corinthians 8_9** [[2 Corinthians ch_ 8.md]] (votes_ 4)
+- **Psalms 18_27** → **2 Samuel 22_28** [[2 Samuel ch_ 22.md]] (votes_ 5)
+- **Psalms 18_27** → **Psalms 9_18** [[Psalms ch_ 9.md]] (votes_ 4)
+- **Psalms 18_27** → **Psalms 40_17** [[Psalms ch_ 40.md]] (votes_ 3)
+- **Psalms 18_27** → **Isaiah 3_9** [[Isaiah ch_ 3.md]] (votes_ 3)
+- **Psalms 18_27** → **Psalms 34_6** [[Psalms ch_ 34.md]] (votes_ 3)
+- **Psalms 18_27** → **Psalms 17_10** [[Psalms ch_ 17.md]] (votes_ 3)
+- **Psalms 18_27** → **Proverbs 30_12** [[Proverbs ch_ 30.md]] (votes_ 3)
+- **Psalms 18_27** → **Isaiah 57_15** [[Isaiah ch_ 57.md]] (votes_ 7)
+- **Psalms 18_27** → **Isaiah 10_12** [[Isaiah ch_ 10.md]] (votes_ 3)
+- **Psalms 18_28** → **Matthew 4_16** [[Matthew ch_ 4.md]] (votes_ 13)
+- **Psalms 18_28** → **Job 18_6** [[Job ch_ 18.md]] (votes_ 4)
+- **Psalms 18_28** → **Luke 1_79** [[Luke ch_ 1.md]] (votes_ 12)
+- **Psalms 18_28** → **Proverbs 20_27** [[Proverbs ch_ 20.md]] (votes_ 10)
+- **Psalms 18_28** → **2 Samuel 22_29** [[2 Samuel ch_ 22.md]] (votes_ 19)
+- **Psalms 18_28** → **Isaiah 42_16** [[Isaiah ch_ 42.md]] (votes_ 17)
+- **Psalms 18_28** → **1 Kings 11_36** [[1 Kings ch_ 11.md]] (votes_ 3)
+- **Psalms 18_28** → **1 Peter 2_9** [[1 Peter ch_ 2.md]] (votes_ 12)
+- **Psalms 18_28** → **Psalms 132_17** [[Psalms ch_ 132.md]] (votes_ 7)
+- **Psalms 18_28** → **Isaiah 62_1** [[Isaiah ch_ 62.md]] (votes_ 8)
+- **Psalms 18_28** → **Psalms 112_4** [[Psalms ch_ 112.md]] (votes_ 10)
+- **Psalms 18_28** → **1 Kings 15_4** [[1 Kings ch_ 15.md]] (votes_ 3)
+- **Psalms 18_28** → **Job 29_3** [[Job ch_ 29.md]] (votes_ 17)
+- **Psalms 18_29** → **2 Samuel 5_25** [[2 Samuel ch_ 5.md]] (votes_ 6)
+- **Psalms 18_29** → **1 Samuel 17_49** [[1 Samuel ch_ 17.md]] (votes_ 5)
+- **Psalms 18_29** → **1 Samuel 30_8** [[1 Samuel ch_ 30.md]] (votes_ 5)
+- **Psalms 18_29** → **1 Corinthians 15_10** [[1 Corinthians ch_ 15.md]] (votes_ 8)
+- **Psalms 18_29** → **Psalms 144_1** [[Psalms ch_ 144.md]] (votes_ 6)
+- **Psalms 18_29** → **Revelation 3_21** [[Revelation ch_ 3.md]] (votes_ 12)
+- **Psalms 18_29** → **1 Samuel 23_2** [[1 Samuel ch_ 23.md]] (votes_ 6)
+- **Psalms 18_29** → **2 Samuel 22_30** [[2 Samuel ch_ 22.md]] (votes_ 18)
+- **Psalms 18_29** → **Colossians 2_15** [[Colossians ch_ 2.md]] (votes_ 10)
+- **Psalms 18_29** → **Psalms 144_10** [[Psalms ch_ 144.md]] (votes_ 7)
+- **Psalms 18_30** → **Psalms 25_10** [[Psalms ch_ 25.md]] (votes_ 9)
+- **Psalms 18_30** → **Psalms 18_2** [[Psalms ch_ 18.md]] (votes_ 7)
+- **Psalms 18_30** → **Proverbs 30_5** [[Proverbs ch_ 30.md]] (votes_ 19)
+- **Psalms 18_30** → **Romans 12_2** [[Romans ch_ 12.md]] (votes_ 7)
+- **Psalms 18_30** → **Daniel 4_37** [[Daniel ch_ 4.md]] (votes_ 8)
+- **Psalms 18_30** → **Psalms 17_7** [[Psalms ch_ 17.md]] (votes_ 6)
+- **Psalms 18_30** → **2 Samuel 22_31** [[2 Samuel ch_ 22.md]] (votes_ 17)
+- **Psalms 18_30** → **Revelation 15_3** [[Revelation ch_ 15.md]] (votes_ 12)
+- **Psalms 18_30** → **Psalms 12_6** [[Psalms ch_ 12.md]] (votes_ 14)
+- **Psalms 18_30** → **Psalms 119_140** [[Psalms ch_ 119.md]] (votes_ 10)
+- **Psalms 18_30** → **Deuteronomy 32_4** [[Deuteronomy ch_ 32.md]] (votes_ 30)
+- **Psalms 18_31** → **2 Samuel 22_32** [[2 Samuel ch_ 22.md]] (votes_ 4)
+- **Psalms 18_31** → **Psalms 86_8** [[Psalms ch_ 86.md]] (votes_ 5)
+- **Psalms 18_31** → **Deuteronomy 32_31** [[Deuteronomy ch_ 32.md]] (votes_ 6)
+- **Psalms 18_31** → **Deuteronomy 32_39** [[Deuteronomy ch_ 32.md]] (votes_ 4)
+- **Psalms 18_31** → **Isaiah 45_5** [[Isaiah ch_ 45.md]] (votes_ 4)
+- **Psalms 18_31** → **1 Samuel 2_2** [[1 Samuel ch_ 2.md]] (votes_ 3)
+- **Psalms 18_32** → **2 Samuel 22_33** [[2 Samuel ch_ 22.md]] (votes_ 12)
+- **Psalms 18_32** → **Psalms 28_7** [[Psalms ch_ 28.md]] (votes_ 12)
+- **Psalms 18_32** → **2 Corinthians 3_5** [[2 Corinthians ch_ 3.md]] (votes_ 14)
+- **Psalms 18_32** → **Psalms 91_2** [[Psalms ch_ 91.md]] (votes_ 11)
+- **Psalms 18_32** → **Isaiah 45_5** [[Isaiah ch_ 45.md]] (votes_ 15)
+- **Psalms 18_32** → **Psalms 93_1** [[Psalms ch_ 93.md]] (votes_ 9)
+- **Psalms 18_33** → **Habakkuk 3_19** [[Habakkuk ch_ 3.md]] (votes_ 13)
+- **Psalms 18_33** → **Deuteronomy 33_29** [[Deuteronomy ch_ 33.md]] (votes_ 4)
+- **Psalms 18_33** → **2 Samuel 2_18** [[2 Samuel ch_ 2.md]] (votes_ 2)
+- **Psalms 18_33** → **Deuteronomy 32_13** [[Deuteronomy ch_ 32.md]] (votes_ 6)
+- **Psalms 18_33** → **2 Samuel 22_14** [[2 Samuel ch_ 22.md]] (votes_ 1)
+- **Psalms 18_34** → **Isaiah 45_1** [[Isaiah ch_ 45.md]] (votes_ 7)
+- **Psalms 18_34** → **Psalms 144_1** [[Psalms ch_ 144.md]] (votes_ 15)
+- **Psalms 18_34** → **Hosea 1_5** [[Hosea ch_ 1.md]] (votes_ 2)
+- **Psalms 18_34** → **Psalms 46_9** [[Psalms ch_ 46.md]] (votes_ 9)
+- **Psalms 18_34** → **2 Samuel 22_36** [[2 Samuel ch_ 22.md]] (votes_ 7)
+- **Psalms 18_34** → **Isaiah 28_6** [[Isaiah ch_ 28.md]] (votes_ 7)
+- **Psalms 18_34** → **Jeremiah 49_35** [[Jeremiah ch_ 49.md]] (votes_ 5)
+- **Psalms 18_35** → **Psalms 17_7** [[Psalms ch_ 17.md]] (votes_ 4)
+- **Psalms 18_35** → **Deuteronomy 33_29** [[Deuteronomy ch_ 33.md]] (votes_ 6)
+- **Psalms 18_35** → **2 Corinthians 10_1** [[2 Corinthians ch_ 10.md]] (votes_ 8)
+- **Psalms 18_35** → **Isaiah 22_3** [[Isaiah ch_ 22.md]] (votes_ 3)
+- **Psalms 18_35** → **Isaiah 40_11** [[Isaiah ch_ 40.md]] (votes_ 6)
+- **Psalms 18_35** → **Psalms 28_7** [[Psalms ch_ 28.md]] (votes_ 10)
+- **Psalms 18_35** → **2 Samuel 22_36** [[2 Samuel ch_ 22.md]] (votes_ 13)
+- **Psalms 18_35** → **Psalms 5_12** [[Psalms ch_ 5.md]] (votes_ 2)
+- **Psalms 18_36** → **Job 36_16** [[Job ch_ 36.md]] (votes_ 4)
+- **Psalms 18_36** → **Job 18_7** [[Job ch_ 18.md]] (votes_ 2)
+- **Psalms 18_36** → **Proverbs 4_12** [[Proverbs ch_ 4.md]] (votes_ 7)
+- **Psalms 18_36** → **2 Samuel 22_37** [[2 Samuel ch_ 22.md]] (votes_ 5)
+- **Psalms 18_36** → **Psalms 4_1** [[Psalms ch_ 4.md]] (votes_ 3)
+- **Psalms 18_36** → **Luke 12_50** [[Luke ch_ 12.md]] (votes_ 2)
+- **Psalms 18_37** → **Psalms 35_2** [[Psalms ch_ 35.md]] (votes_ 2)
+- **Psalms 18_37** → **Psalms 9_3** [[Psalms ch_ 9.md]] (votes_ 2)
+- **Psalms 18_37** → **Psalms 3_7** [[Psalms ch_ 3.md]] (votes_ 2)
+- **Psalms 18_37** → **Psalms 35_5** [[Psalms ch_ 35.md]] (votes_ 2)
+- **Psalms 18_37** → **Revelation 6_2** [[Revelation ch_ 6.md]] (votes_ 2)
+- **Psalms 18_37** → **Psalms 44_5** [[Psalms ch_ 44.md]] (votes_ 3)
+- **Psalms 18_37** → **Psalms 37_20** [[Psalms ch_ 37.md]] (votes_ 2)
+- **Psalms 18_38** → **Psalms 36_12** [[Psalms ch_ 36.md]] (votes_ 2)
+- **Psalms 18_38** → **1 Samuel 30_17** [[1 Samuel ch_ 30.md]] (votes_ 1)
+- **Psalms 18_38** → **2 Samuel 22_39** [[2 Samuel ch_ 22.md]] (votes_ 2)
+- **Psalms 18_38** → **1 Samuel 23_5** [[1 Samuel ch_ 23.md]] (votes_ 2)
+- **Psalms 18_38** → **Psalms 47_3** [[Psalms ch_ 47.md]] (votes_ 2)
+- **Psalms 18_39** → **Isaiah 45_14** [[Isaiah ch_ 45.md]] (votes_ 6)
+- **Psalms 18_39** → **Lamentations 5_5** [[Lamentations ch_ 5.md]] (votes_ 6)
+- **Psalms 18_39** → **Psalms 66_3** [[Psalms ch_ 66.md]] (votes_ 5)
+- **Psalms 18_39** → **Philippians 3_21** [[Philippians ch_ 3.md]] (votes_ 5)
+- **Psalms 18_39** → **John 15_23** [[John ch_ 15.md]] (votes_ 6)
+- **Psalms 18_39** → **Psalms 34_21** [[Psalms ch_ 34.md]] (votes_ 6)
+- **Psalms 18_39** → **Ephesians 1_22** [[Ephesians ch_ 1.md]] (votes_ 6)
+- **Psalms 18_39** → **1 Chronicles 22_18** [[1 Chronicles ch_ 22.md]] (votes_ 6)
+- **Psalms 18_39** → **Proverbs 8_36** [[Proverbs ch_ 8.md]] (votes_ 6)
+- **Psalms 18_39** → **Psalms 18_32** [[Psalms ch_ 18.md]] (votes_ 9)
+- **Psalms 18_40** → **Psalms 21_12** [[Psalms ch_ 21.md]] (votes_ 4)
+- **Psalms 18_40** → **Psalms 94_23** [[Psalms ch_ 94.md]] (votes_ 3)
+- **Psalms 18_41** → **Jeremiah 11_11** [[Jeremiah ch_ 11.md]] (votes_ 2)
+- **Psalms 18_41** → **Zechariah 7_13** [[Zechariah ch_ 7.md]] (votes_ 2)
+- **Psalms 18_41** → **Psalms 50_22** [[Psalms ch_ 50.md]] (votes_ 2)
+- **Psalms 18_41** → **Job 27_9** [[Job ch_ 27.md]] (votes_ 3)
+- **Psalms 18_41** → **Proverbs 1_28** [[Proverbs ch_ 1.md]] (votes_ 5)
+- **Psalms 18_41** → **Ezekiel 8_18** [[Ezekiel ch_ 8.md]] (votes_ 2)
+- **Psalms 18_41** → **Jeremiah 14_12** [[Jeremiah ch_ 14.md]] (votes_ 2)
+- **Psalms 18_41** → **Isaiah 1_15** [[Isaiah ch_ 1.md]] (votes_ 2)
+- **Psalms 18_41** → **Micah 3_4** [[Micah ch_ 3.md]] (votes_ 2)
+- **Psalms 18_41** → **Hosea 7_14** [[Hosea ch_ 7.md]] (votes_ 2)
+- **Psalms 18_41** → **Luke 13_25** [[Luke ch_ 13.md]] (votes_ 2)
+- **Psalms 18_42** → **2 Kings 13_7** [[2 Kings ch_ 13.md]] (votes_ 3)
+- **Psalms 18_42** → **Zechariah 10_5** [[Zechariah ch_ 10.md]] (votes_ 3)
+- **Psalms 18_42** → **Isaiah 41_2** [[Isaiah ch_ 41.md]] (votes_ 2)
+- **Psalms 18_42** → **Isaiah 10_6** [[Isaiah ch_ 10.md]] (votes_ 3)
+- **Psalms 18_42** → **Malachi 4_3** [[Malachi ch_ 4.md]] (votes_ 2)
+- **Psalms 18_42** → **Isaiah 25_10** [[Isaiah ch_ 25.md]] (votes_ 2)
+- **Psalms 18_42** → **Psalms 50_22** [[Psalms ch_ 50.md]] (votes_ 1)
+- **Psalms 18_43** → **Romans 15_18** [[Romans ch_ 15.md]] (votes_ 5)
+- **Psalms 18_43** → **Isaiah 55_5** [[Isaiah ch_ 55.md]] (votes_ 10)
+- **Psalms 18_43** → **2 Samuel 19_9** [[2 Samuel ch_ 19.md]] (votes_ 7)
+- **Psalms 18_43** → **Romans 16_26** [[Romans ch_ 16.md]] (votes_ 5)
+- **Psalms 18_43** → **Psalms 108_9** [[Psalms ch_ 108.md]] (votes_ 2)
+- **Psalms 18_43** → **Acts 5_31** [[Acts ch_ 5.md]] (votes_ 5)
+- **Psalms 18_43** → **Romans 15_12** [[Romans ch_ 15.md]] (votes_ 5)
+- **Psalms 18_43** → **Isaiah 52_15** [[Isaiah ch_ 52.md]] (votes_ 8)
+- **Psalms 18_43** → **1 Peter 2_10** [[1 Peter ch_ 2.md]] (votes_ 8)
+- **Psalms 18_43** → **Hosea 1_10** [[Hosea ch_ 1.md]] (votes_ 3)
+- **Psalms 18_43** → **Revelation 11_15** [[Revelation ch_ 11.md]] (votes_ 5)
+- **Psalms 18_43** → **2 Samuel 3_1** [[2 Samuel ch_ 3.md]] (votes_ 9)
+- **Psalms 18_43** → **Ephesians 1_22** [[Ephesians ch_ 1.md]] (votes_ 7)
+- **Psalms 18_43** → **Isaiah 49_6** [[Isaiah ch_ 49.md]] (votes_ 2)
+- **Psalms 18_44** → **Psalms 66_3** [[Psalms ch_ 66.md]] (votes_ 6)
+- **Psalms 18_44** → **Ezekiel 44_7** [[Ezekiel ch_ 44.md]] (votes_ 3)
+- **Psalms 18_44** → **Deuteronomy 33_29** [[Deuteronomy ch_ 33.md]] (votes_ 4)
+- **Psalms 18_44** → **Isaiah 62_8** [[Isaiah ch_ 62.md]] (votes_ 3)
+- **Psalms 18_44** → **Psalms 81_15** [[Psalms ch_ 81.md]] (votes_ 6)
+- **Psalms 18_44** → **2 Samuel 1_13** [[2 Samuel ch_ 1.md]] (votes_ 3)
+- **Psalms 18_44** → **Psalms 68_30** [[Psalms ch_ 68.md]] (votes_ 3)
+- **Psalms 18_45** → **James 1_11** [[James ch_ 1.md]] (votes_ 2)
+- **Psalms 18_45** → **Revelation 6_16** [[Revelation ch_ 6.md]] (votes_ 2)
+- **Psalms 18_45** → **Micah 7_17** [[Micah ch_ 7.md]] (votes_ 6)
+- **Psalms 18_45** → **Isaiah 24_4** [[Isaiah ch_ 24.md]] (votes_ 2)
+- **Psalms 18_46** → **Exodus 15_2** [[Exodus ch_ 15.md]] (votes_ 2)
+- **Psalms 18_46** → **Psalms 42_9** [[Psalms ch_ 42.md]] (votes_ 2)
+- **Psalms 18_46** → **Isaiah 12_2** [[Isaiah ch_ 12.md]] (votes_ 2)
+- **Psalms 18_46** → **Luke 1_47** [[Luke ch_ 1.md]] (votes_ 4)
+- **Psalms 18_46** → **Psalms 79_9** [[Psalms ch_ 79.md]] (votes_ 4)
+- **Psalms 18_46** → **2 Samuel 22_47** [[2 Samuel ch_ 22.md]] (votes_ 8)
+- **Psalms 18_46** → **Psalms 25_5** [[Psalms ch_ 25.md]] (votes_ 2)
+- **Psalms 18_46** → **Psalms 57_11** [[Psalms ch_ 57.md]] (votes_ 3)
+- **Psalms 18_46** → **Jeremiah 10_10** [[Jeremiah ch_ 10.md]] (votes_ 4)
+- **Psalms 18_46** → **Psalms 21_13** [[Psalms ch_ 21.md]] (votes_ 0)
+- **Psalms 18_46** → **Revelation 1_18** [[Revelation ch_ 1.md]] (votes_ 5)
+- **Psalms 18_46** → **John 14_19** [[John ch_ 14.md]] (votes_ 4)
+- **Psalms 18_46** → **Psalms 57_5** [[Psalms ch_ 57.md]] (votes_ 7)
+- **Psalms 18_46** → **Psalms 18_2** [[Psalms ch_ 18.md]] (votes_ 6)
+- **Psalms 18_46** → **Psalms 68_20** [[Psalms ch_ 68.md]] (votes_ 4)
+- **Psalms 18_46** → **Psalms 99_9** [[Psalms ch_ 99.md]] (votes_ 3)
+- **Psalms 18_46** → **Psalms 51_14** [[Psalms ch_ 51.md]] (votes_ 2)
+- **Psalms 18_47** → **Psalms 47_3** [[Psalms ch_ 47.md]] (votes_ 8)
+- **Psalms 18_47** → **Psalms 144_2** [[Psalms ch_ 144.md]] (votes_ 3)
+- **Psalms 18_47** → **Romans 12_19** [[Romans ch_ 12.md]] (votes_ 5)
+- **Psalms 18_47** → **Nahum 1_2** [[Nahum ch_ 1.md]] (votes_ 3)
+- **Psalms 18_47** → **2 Samuel 22_48** [[2 Samuel ch_ 22.md]] (votes_ 3)
+- **Psalms 18_47** → **Deuteronomy 32_35** [[Deuteronomy ch_ 32.md]] (votes_ 2)
+- **Psalms 18_48** → **Psalms 140_4** [[Psalms ch_ 140.md]] (votes_ 6)
+- **Psalms 18_48** → **Psalms 89_13** [[Psalms ch_ 89.md]] (votes_ 2)
+- **Psalms 18_48** → **Psalms 140_1** [[Psalms ch_ 140.md]] (votes_ 6)
+- **Psalms 18_48** → **Psalms 86_14** [[Psalms ch_ 86.md]] (votes_ 6)
+- **Psalms 18_48** → **Psalms 140_11** [[Psalms ch_ 140.md]] (votes_ 6)
+- **Psalms 18_48** → **Psalms 7_16** [[Psalms ch_ 7.md]] (votes_ 5)
+- **Psalms 18_48** → **Philippians 2_9** [[Philippians ch_ 2.md]] (votes_ 2)
+- **Psalms 18_49** → **Psalms 14_7** [[Psalms ch_ 14.md]] (votes_ 2)
+- **Psalms 18_49** → **Psalms 108_1** [[Psalms ch_ 108.md]] (votes_ 2)
+- **Psalms 18_49** → **1 Timothy 6_13** [[1 Timothy ch_ 6.md]] (votes_ 2)
+- **Psalms 18_49** → **Psalms 138_4** [[Psalms ch_ 138.md]] (votes_ 2)
+- **Psalms 18_49** → **Psalms 108_3** [[Psalms ch_ 108.md]] (votes_ 2)
+- **Psalms 18_49** → **Romans 15_9** [[Romans ch_ 15.md]] (votes_ 8)
+- **Psalms 18_49** → **Psalms 30_12** [[Psalms ch_ 30.md]] (votes_ 2)
+- **Psalms 18_49** → **Matthew 26_30** [[Matthew ch_ 26.md]] (votes_ 2)
+- **Psalms 18_50** → **Luke 1_69** [[Luke ch_ 1.md]] (votes_ 3)
+- **Psalms 18_50** → **1 Chronicles 17_27** [[1 Chronicles ch_ 17.md]] (votes_ 2)
+- **Psalms 18_50** → **Psalms 2_6** [[Psalms ch_ 2.md]] (votes_ 2)
+- **Psalms 18_50** → **2 Samuel 7_13** [[2 Samuel ch_ 7.md]] (votes_ 6)
+- **Psalms 18_50** → **Galatians 3_16** [[Galatians ch_ 3.md]] (votes_ 3)
+- **Psalms 18_50** → **1 Samuel 16_1** [[1 Samuel ch_ 16.md]] (votes_ 1)
+- **Psalms 18_50** → **Psalms 132_10** [[Psalms ch_ 132.md]] (votes_ 6)
+- **Psalms 18_50** → **Romans 1_3** [[Romans ch_ 1.md]] (votes_ 1)
+- **Psalms 18_50** → **1 Samuel 2_10** [[1 Samuel ch_ 2.md]] (votes_ 2)
+- **Psalms 18_50** → **Psalms 144_10** [[Psalms ch_ 144.md]] (votes_ 9)
+- **Psalms 18_50** → **Romans 11_29** [[Romans ch_ 11.md]] (votes_ 5)

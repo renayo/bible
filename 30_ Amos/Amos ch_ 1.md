@@ -1,0 +1,186 @@
+# Amos 1
+
+**1** ¶ The words of Amos, who was among the herdmen of Tekoa, which he saw concerning Israel in the days of Uzziah king of Judah, and in the days of Jeroboam the son of Joash king of Israel, two years before the earthquake.
+
+**2** And he said, The LORD will roar from Zion, and utter his voice from Jerusalem; and the habitations of the shepherds shall mourn, and the top of Carmel shall wither.
+
+**3** ¶ Thus saith the LORD; For three transgressions of Damascus, and for four, I will not turn away [the punishment] thereof; because they have threshed Gilead with threshing instruments of iron_
+
+**4** But I will send a fire into the house of Hazael, which shall devour the palaces of Benhadad.
+
+**5** I will break also the bar of Damascus, and cut off the inhabitant from the plain of Aven, and him that holdeth the sceptre from the house of Eden_ and the people of Syria shall go into captivity unto Kir, saith the LORD.
+
+**6** Thus saith the LORD; For three transgressions of Gaza, and for four, I will not turn away [the punishment] thereof; because they carried away captive the whole captivity, to deliver [them] up to Edom_
+
+**7** But I will send a fire on the wall of Gaza, which shall devour the palaces thereof_
+
+**8** And I will cut off the inhabitant from Ashdod, and him that holdeth the sceptre from Ashkelon, and I will turn mine hand against Ekron_ and the remnant of the Philistines shall perish, saith the Lord GOD.
+
+**9** Thus saith the LORD; For three transgressions of Tyrus, and for four, I will not turn away [the punishment] thereof; because they delivered up the whole captivity to Edom, and remembered not the brotherly covenant_
+
+**10** But I will send a fire on the wall of Tyrus, which shall devour the palaces thereof.
+
+**11** Thus saith the LORD; For three transgressions of Edom, and for four, I will not turn away [the punishment] thereof; because he did pursue his brother with the sword, and did cast off all pity, and his anger did tear perpetually, and he kept his wrath for ever_
+
+**12** But I will send a fire upon Teman, which shall devour the palaces of Bozrah.
+
+**13** Thus saith the LORD; For three transgressions of the children of Ammon, and for four, I will not turn away [the punishment] thereof; because they have ripped up the women with child of Gilead, that they might enlarge their border_
+
+**14** But I will kindle a fire in the wall of Rabbah, and it shall devour the palaces thereof, with shouting in the day of battle, with a tempest in the day of the whirlwind_
+
+**15** And their king shall go into captivity, he and his princes together, saith the LORD.
+
+---
+
+## Cross-References
+
+- **Amos 1_1** → **2 Chronicles 11_6** [[2 Chronicles ch_ 11.md]] (votes_ 4)
+- **Amos 1_1** → **Amos 7_14** [[Amos ch_ 7.md]] (votes_ 4)
+- **Amos 1_1** → **1 Kings 19_19** [[1 Kings ch_ 19.md]] (votes_ 4)
+- **Amos 1_1** → **Isaiah 1_1** [[Isaiah ch_ 1.md]] (votes_ 3)
+- **Amos 1_1** → **1 Corinthians 1_27** [[1 Corinthians ch_ 1.md]] (votes_ 2)
+- **Amos 1_1** → **Jeremiah 6_1** [[Jeremiah ch_ 6.md]] (votes_ 3)
+- **Amos 1_1** → **Zechariah 14_5** [[Zechariah ch_ 14.md]] (votes_ 9)
+- **Amos 1_1** → **Jeremiah 7_27** [[Jeremiah ch_ 7.md]] (votes_ 0)
+- **Amos 1_1** → **2 Kings 14_21** [[2 Kings ch_ 14.md]] (votes_ 2)
+- **Amos 1_1** → **Hosea 1_1** [[Hosea ch_ 1.md]] (votes_ 2)
+- **Amos 1_1** → **Exodus 3_1** [[Exodus ch_ 3.md]] (votes_ -1)
+- **Amos 1_1** → **Micah 1_1** [[Micah ch_ 1.md]] (votes_ 2)
+- **Amos 1_1** → **Jeremiah 1_1** [[Jeremiah ch_ 1.md]] (votes_ 3)
+- **Amos 1_1** → **2 Samuel 14_2** [[2 Samuel ch_ 14.md]] (votes_ 4)
+- **Amos 1_1** → **Matthew 4_18** [[Matthew ch_ 4.md]] (votes_ -2)
+- **Amos 1_1** → **2 Chronicles 20_20** [[2 Chronicles ch_ 20.md]] (votes_ 4)
+- **Amos 1_2** → **Jeremiah 14_2** [[Jeremiah ch_ 14.md]] (votes_ 2)
+- **Amos 1_2** → **Jeremiah 50_19** [[Jeremiah ch_ 50.md]] (votes_ 2)
+- **Amos 1_2** → **Amos 9_3** [[Amos ch_ 9.md]] (votes_ 5)
+- **Amos 1_2** → **1 Samuel 25_2** [[1 Samuel ch_ 25.md]] (votes_ 1)
+- **Amos 1_2** → **Isaiah 35_2** [[Isaiah ch_ 35.md]] (votes_ 2)
+- **Amos 1_2** → **Jeremiah 12_4** [[Jeremiah ch_ 12.md]] (votes_ 4)
+- **Amos 1_2** → **Joel 3_16** [[Joel ch_ 3.md]] (votes_ 10)
+- **Amos 1_2** → **Joel 2_11** [[Joel ch_ 2.md]] (votes_ 2)
+- **Amos 1_2** → **Isaiah 33_9** [[Isaiah ch_ 33.md]] (votes_ 2)
+- **Amos 1_2** → **Jeremiah 25_30** [[Jeremiah ch_ 25.md]] (votes_ 6)
+- **Amos 1_2** → **Nahum 1_4** [[Nahum ch_ 1.md]] (votes_ 3)
+- **Amos 1_2** → **Isaiah 42_13** [[Isaiah ch_ 42.md]] (votes_ 4)
+- **Amos 1_2** → **Hosea 13_8** [[Hosea ch_ 13.md]] (votes_ 2)
+- **Amos 1_2** → **Proverbs 20_2** [[Proverbs ch_ 20.md]] (votes_ 2)
+- **Amos 1_3** → **2 Kings 13_3** [[2 Kings ch_ 13.md]] (votes_ 3)
+- **Amos 1_3** → **Amos 2_6** [[Amos ch_ 2.md]] (votes_ 6)
+- **Amos 1_3** → **Amos 1_11** [[Amos ch_ 1.md]] (votes_ 4)
+- **Amos 1_3** → **2 Kings 8_12** [[2 Kings ch_ 8.md]] (votes_ 6)
+- **Amos 1_3** → **Isaiah 7_8** [[Isaiah ch_ 7.md]] (votes_ 3)
+- **Amos 1_3** → **Isaiah 41_15** [[Isaiah ch_ 41.md]] (votes_ 3)
+- **Amos 1_3** → **Amos 1_9** [[Amos ch_ 1.md]] (votes_ 6)
+- **Amos 1_3** → **Job 19_3** [[Job ch_ 19.md]] (votes_ 3)
+- **Amos 1_3** → **Proverbs 6_16** [[Proverbs ch_ 6.md]] (votes_ 3)
+- **Amos 1_3** → **Amos 2_4** [[Amos ch_ 2.md]] (votes_ 4)
+- **Amos 1_3** → **Ecclesiastes 11_2** [[Ecclesiastes ch_ 11.md]] (votes_ 3)
+- **Amos 1_3** → **Amos 1_6** [[Amos ch_ 1.md]] (votes_ 5)
+- **Amos 1_3** → **Amos 1_13** [[Amos ch_ 1.md]] (votes_ 5)
+- **Amos 1_3** → **Zechariah 9_1** [[Zechariah ch_ 9.md]] (votes_ 4)
+- **Amos 1_3** → **Amos 2_1** [[Amos ch_ 2.md]] (votes_ 5)
+- **Amos 1_3** → **1 Kings 19_17** [[1 Kings ch_ 19.md]] (votes_ 3)
+- **Amos 1_3** → **Job 5_19** [[Job ch_ 5.md]] (votes_ 3)
+- **Amos 1_3** → **Isaiah 8_4** [[Isaiah ch_ 8.md]] (votes_ 6)
+- **Amos 1_3** → **2 Kings 13_7** [[2 Kings ch_ 13.md]] (votes_ 3)
+- **Amos 1_4** → **Judges 9_57** [[Judges ch_ 9.md]] (votes_ 2)
+- **Amos 1_4** → **2 Chronicles 16_2** [[2 Chronicles ch_ 16.md]] (votes_ 2)
+- **Amos 1_4** → **2 Kings 13_25** [[2 Kings ch_ 13.md]] (votes_ 3)
+- **Amos 1_4** → **Amos 2_5** [[Amos ch_ 2.md]] (votes_ 2)
+- **Amos 1_4** → **2 Kings 6_24** [[2 Kings ch_ 6.md]] (votes_ 3)
+- **Amos 1_4** → **Jeremiah 17_27** [[Jeremiah ch_ 17.md]] (votes_ 3)
+- **Amos 1_4** → **Amos 1_14** [[Amos ch_ 1.md]] (votes_ 2)
+- **Amos 1_4** → **1 Kings 19_15** [[1 Kings ch_ 19.md]] (votes_ 2)
+- **Amos 1_4** → **Amos 1_12** [[Amos ch_ 1.md]] (votes_ 2)
+- **Amos 1_4** → **2 Kings 13_3** [[2 Kings ch_ 13.md]] (votes_ 3)
+- **Amos 1_4** → **Amos 2_2** [[Amos ch_ 2.md]] (votes_ 2)
+- **Amos 1_4** → **Ezekiel 30_8** [[Ezekiel ch_ 30.md]] (votes_ 2)
+- **Amos 1_4** → **Ezekiel 39_6** [[Ezekiel ch_ 39.md]] (votes_ 2)
+- **Amos 1_4** → **Jeremiah 49_27** [[Jeremiah ch_ 49.md]] (votes_ 4)
+- **Amos 1_4** → **Hosea 8_14** [[Hosea ch_ 8.md]] (votes_ 2)
+- **Amos 1_4** → **Amos 1_10** [[Amos ch_ 1.md]] (votes_ 2)
+- **Amos 1_4** → **Amos 1_7** [[Amos ch_ 1.md]] (votes_ 2)
+- **Amos 1_5** → **Lamentations 2_9** [[Lamentations ch_ 2.md]] (votes_ 3)
+- **Amos 1_5** → **Nahum 3_13** [[Nahum ch_ 3.md]] (votes_ 2)
+- **Amos 1_5** → **Jeremiah 50_36** [[Jeremiah ch_ 50.md]] (votes_ 2)
+- **Amos 1_5** → **Isaiah 43_14** [[Isaiah ch_ 43.md]] (votes_ 2)
+- **Amos 1_5** → **Amos 9_7** [[Amos ch_ 9.md]] (votes_ 6)
+- **Amos 1_5** → **2 Kings 16_9** [[2 Kings ch_ 16.md]] (votes_ 7)
+- **Amos 1_5** → **Jeremiah 51_30** [[Jeremiah ch_ 51.md]] (votes_ 5)
+- **Amos 1_6** → **Jeremiah 47_1** [[Jeremiah ch_ 47.md]] (votes_ 4)
+- **Amos 1_6** → **Ezekiel 35_5** [[Ezekiel ch_ 35.md]] (votes_ 5)
+- **Amos 1_6** → **Amos 1_9** [[Amos ch_ 1.md]] (votes_ 6)
+- **Amos 1_6** → **Amos 1_11** [[Amos ch_ 1.md]] (votes_ 8)
+- **Amos 1_6** → **Obadiah 1_11** [[Obadiah ch_ 1.md]] (votes_ 7)
+- **Amos 1_6** → **Amos 1_3** [[Amos ch_ 1.md]] (votes_ 4)
+- **Amos 1_6** → **Joel 3_6** [[Joel ch_ 3.md]] (votes_ 5)
+- **Amos 1_6** → **2 Chronicles 28_18** [[2 Chronicles ch_ 28.md]] (votes_ 8)
+- **Amos 1_6** → **Acts 8_26** [[Acts ch_ 8.md]] (votes_ 2)
+- **Amos 1_6** → **Zechariah 9_5** [[Zechariah ch_ 9.md]] (votes_ 4)
+- **Amos 1_6** → **1 Samuel 6_17** [[1 Samuel ch_ 6.md]] (votes_ 6)
+- **Amos 1_7** → **Amos 1_4** [[Amos ch_ 1.md]] (votes_ 3)
+- **Amos 1_7** → **Romans 12_19** [[Romans ch_ 12.md]] (votes_ 3)
+- **Amos 1_7** → **Jeremiah 47_1** [[Jeremiah ch_ 47.md]] (votes_ 4)
+- **Amos 1_7** → **2 Chronicles 26_6** [[2 Chronicles ch_ 26.md]] (votes_ 3)
+- **Amos 1_7** → **Zephaniah 2_4** [[Zephaniah ch_ 2.md]] (votes_ 4)
+- **Amos 1_7** → **Deuteronomy 32_35** [[Deuteronomy ch_ 32.md]] (votes_ 3)
+- **Amos 1_7** → **2 Kings 18_8** [[2 Kings ch_ 18.md]] (votes_ 4)
+- **Amos 1_8** → **Isaiah 20_1** [[Isaiah ch_ 20.md]] (votes_ 4)
+- **Amos 1_8** → **Ezekiel 25_16** [[Ezekiel ch_ 25.md]] (votes_ 8)
+- **Amos 1_8** → **Amos 3_9** [[Amos ch_ 3.md]] (votes_ 3)
+- **Amos 1_8** → **Isaiah 1_25** [[Isaiah ch_ 1.md]] (votes_ 3)
+- **Amos 1_8** → **Zechariah 9_6** [[Zechariah ch_ 9.md]] (votes_ 4)
+- **Amos 1_8** → **2 Chronicles 26_6** [[2 Chronicles ch_ 26.md]] (votes_ 4)
+- **Amos 1_8** → **Zechariah 13_7** [[Zechariah ch_ 13.md]] (votes_ 3)
+- **Amos 1_8** → **Psalms 81_14** [[Psalms ch_ 81.md]] (votes_ 4)
+- **Amos 1_9** → **Amos 1_6** [[Amos ch_ 1.md]] (votes_ 2)
+- **Amos 1_9** → **Matthew 11_21** [[Matthew ch_ 11.md]] (votes_ 2)
+- **Amos 1_9** → **Jeremiah 47_4** [[Jeremiah ch_ 47.md]] (votes_ 2)
+- **Amos 1_9** → **Jeremiah 25_22** [[Jeremiah ch_ 25.md]] (votes_ 2)
+- **Amos 1_9** → **Amos 1_11** [[Amos ch_ 1.md]] (votes_ 2)
+- **Amos 1_9** → **2 Samuel 5_11** [[2 Samuel ch_ 5.md]] (votes_ 3)
+- **Amos 1_10** → **Zechariah 9_4** [[Zechariah ch_ 9.md]] (votes_ 4)
+- **Amos 1_10** → **Amos 1_4** [[Amos ch_ 1.md]] (votes_ 2)
+- **Amos 1_10** → **Amos 1_7** [[Amos ch_ 1.md]] (votes_ 3)
+- **Amos 1_10** → **Ezekiel 26_12** [[Ezekiel ch_ 26.md]] (votes_ 2)
+- **Amos 1_11** → **2 Chronicles 28_17** [[2 Chronicles ch_ 28.md]] (votes_ 7)
+- **Amos 1_11** → **Malachi 1_2** [[Malachi ch_ 1.md]] (votes_ 2)
+- **Amos 1_11** → **Psalms 85_5** [[Psalms ch_ 85.md]] (votes_ 1)
+- **Amos 1_11** → **Malachi 1_4** [[Malachi ch_ 1.md]] (votes_ 6)
+- **Amos 1_11** → **Deuteronomy 23_7** [[Deuteronomy ch_ 23.md]] (votes_ 3)
+- **Amos 1_11** → **Psalms 137_7** [[Psalms ch_ 137.md]] (votes_ 6)
+- **Amos 1_11** → **Ephesians 5_1** [[Ephesians ch_ 5.md]] (votes_ 2)
+- **Amos 1_11** → **Isaiah 57_16** [[Isaiah ch_ 57.md]] (votes_ 2)
+- **Amos 1_11** → **Joel 3_19** [[Joel ch_ 3.md]] (votes_ 6)
+- **Amos 1_11** → **Micah 7_18** [[Micah ch_ 7.md]] (votes_ 3)
+- **Amos 1_11** → **Ecclesiastes 7_9** [[Ecclesiastes ch_ 7.md]] (votes_ 3)
+- **Amos 1_12** → **Genesis 36_11** [[Genesis ch_ 36.md]] (votes_ 2)
+- **Amos 1_12** → **Isaiah 34_6** [[Isaiah ch_ 34.md]] (votes_ 2)
+- **Amos 1_12** → **Jeremiah 49_7** [[Jeremiah ch_ 49.md]] (votes_ 4)
+- **Amos 1_12** → **Genesis 36_33** [[Genesis ch_ 36.md]] (votes_ 2)
+- **Amos 1_12** → **Jeremiah 49_13** [[Jeremiah ch_ 49.md]] (votes_ 3)
+- **Amos 1_12** → **Jeremiah 49_20** [[Jeremiah ch_ 49.md]] (votes_ 4)
+- **Amos 1_12** → **Jeremiah 49_22** [[Jeremiah ch_ 49.md]] (votes_ 3)
+- **Amos 1_13** → **Psalms 83_7** [[Psalms ch_ 83.md]] (votes_ 1)
+- **Amos 1_13** → **2 Chronicles 20_10** [[2 Chronicles ch_ 20.md]] (votes_ 2)
+- **Amos 1_13** → **Amos 1_3** [[Amos ch_ 1.md]] (votes_ 2)
+- **Amos 1_13** → **Nehemiah 2_19** [[Nehemiah ch_ 2.md]] (votes_ 2)
+- **Amos 1_13** → **Deuteronomy 2_19** [[Deuteronomy ch_ 2.md]] (votes_ 2)
+- **Amos 1_13** → **2 Kings 24_2** [[2 Kings ch_ 24.md]] (votes_ 2)
+- **Amos 1_13** → **Ezekiel 35_10** [[Ezekiel ch_ 35.md]] (votes_ 3)
+- **Amos 1_13** → **2 Chronicles 20_1** [[2 Chronicles ch_ 20.md]] (votes_ 2)
+- **Amos 1_13** → **Isaiah 5_8** [[Isaiah ch_ 5.md]] (votes_ 3)
+- **Amos 1_13** → **Ezekiel 21_28** [[Ezekiel ch_ 21.md]] (votes_ 2)
+- **Amos 1_13** → **Hosea 13_16** [[Hosea ch_ 13.md]] (votes_ 5)
+- **Amos 1_14** → **Deuteronomy 3_11** [[Deuteronomy ch_ 3.md]] (votes_ 4)
+- **Amos 1_14** → **Psalms 83_15** [[Psalms ch_ 83.md]] (votes_ 2)
+- **Amos 1_14** → **Isaiah 30_30** [[Isaiah ch_ 30.md]] (votes_ 3)
+- **Amos 1_14** → **Daniel 11_40** [[Daniel ch_ 11.md]] (votes_ 2)
+- **Amos 1_14** → **Jeremiah 49_2** [[Jeremiah ch_ 49.md]] (votes_ 4)
+- **Amos 1_14** → **2 Samuel 12_26** [[2 Samuel ch_ 12.md]] (votes_ 3)
+- **Amos 1_14** → **Isaiah 9_5** [[Isaiah ch_ 9.md]] (votes_ 2)
+- **Amos 1_14** → **Zechariah 7_14** [[Zechariah ch_ 7.md]] (votes_ 2)
+- **Amos 1_14** → **Ezekiel 25_5** [[Ezekiel ch_ 25.md]] (votes_ 2)
+- **Amos 1_14** → **Amos 2_2** [[Amos ch_ 2.md]] (votes_ 4)
+- **Amos 1_14** → **Job 39_25** [[Job ch_ 39.md]] (votes_ 2)
+- **Amos 1_15** → **Jeremiah 49_3** [[Jeremiah ch_ 49.md]] (votes_ 4)

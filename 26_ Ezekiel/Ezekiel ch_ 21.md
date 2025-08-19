@@ -1,0 +1,355 @@
+# Ezekiel 21
+
+**1** ¶ And the word of the LORD came unto me, saying,
+
+**2** Son of man, set thy face toward Jerusalem, and drop [thy word] toward the holy places, and prophesy against the land of Israel,
+
+**3** And say to the land of Israel, Thus saith the LORD; Behold, I [am] against thee, and will draw forth my sword out of his sheath, and will cut off from thee the righteous and the wicked.
+
+**4** Seeing then that I will cut off from thee the righteous and the wicked, therefore shall my sword go forth out of his sheath against all flesh from the south to the north_
+
+**5** That all flesh may know that I the LORD have drawn forth my sword out of his sheath_ it shall not return any more.
+
+**6** Sigh therefore, thou son of man, with the breaking of [thy] loins; and with bitterness sigh before their eyes.
+
+**7** And it shall be, when they say unto thee, Wherefore sighest thou? that thou shalt answer, For the tidings; because it cometh_ and every heart shall melt, and all hands shall be feeble, and every spirit shall faint, and all knees shall be weak [as] water_ behold, it cometh, and shall be brought to pass, saith the Lord GOD.
+
+**8** ¶ Again the word of the LORD came unto me, saying,
+
+**9** Son of man, prophesy, and say, Thus saith the LORD; Say, A sword, a sword is sharpened, and also furbished_
+
+**10** It is sharpened to make a sore slaughter; it is furbished that it may glitter_ should we then make mirth? it contemneth the rod of my son, [as] every tree.
+
+**11** And he hath given it to be furbished, that it may be handled_ this sword is sharpened, and it is furbished, to give it into the hand of the slayer.
+
+**12** Cry and howl, son of man_ for it shall be upon my people, it [shall be] upon all the princes of Israel_ terrors by reason of the sword shall be upon my people_ smite therefore upon [thy] thigh.
+
+**13** Because [it is] a trial, and what if [the sword] contemn even the rod? it shall be no [more], saith the Lord GOD.
+
+**14** Thou therefore, son of man, prophesy, and smite [thine] hands together, and let the sword be doubled the third time, the sword of the slain_ it [is] the sword of the great [men that are] slain, which entereth into their privy chambers.
+
+**15** I have set the point of the sword against all their gates, that [their] heart may faint, and [their] ruins be multiplied_ ah! [it is] made bright, [it is] wrapped up for the slaughter.
+
+**16** Go thee one way or other, [either] on the right hand, [or] on the left, whithersoever thy face [is] set.
+
+**17** I will also smite mine hands together, and I will cause my fury to rest_ I the LORD have said [it].
+
+**18** ¶ The word of the LORD came unto me again, saying,
+
+**19** Also, thou son of man, appoint thee two ways, that the sword of the king of Babylon may come_ both twain shall come forth out of one land_ and choose thou a place, choose [it] at the head of the way to the city.
+
+**20** Appoint a way, that the sword may come to Rabbath of the Ammonites, and to Judah in Jerusalem the defenced.
+
+**21** For the king of Babylon stood at the parting of the way, at the head of the two ways, to use divination_ he made [his] arrows bright, he consulted with images, he looked in the liver.
+
+**22** At his right hand was the divination for Jerusalem, to appoint captains, to open the mouth in the slaughter, to lift up the voice with shouting, to appoint [battering] rams against the gates, to cast a mount, [and] to build a fort.
+
+**23** And it shall be unto them as a false divination in their sight, to them that have sworn oaths_ but he will call to remembrance the iniquity, that they may be taken.
+
+**24** Therefore thus saith the Lord GOD; Because ye have made your iniquity to be remembered, in that your transgressions are discovered, so that in all your doings your sins do appear; because, [I say], that ye are come to remembrance, ye shall be taken with the hand.
+
+**25** And thou, profane wicked prince of Israel, whose day is come, when iniquity [shall have] an end,
+
+**26** Thus saith the Lord GOD; Remove the diadem, and take off the crown_ this [shall] not [be] the same_ exalt [him that is] low, and abase [him that is] high.
+
+**27** I will overturn, overturn, overturn, it_ and it shall be no [more], until he come whose right it is; and I will give it [him].
+
+**28** ¶ And thou, son of man, prophesy and say, Thus saith the Lord GOD concerning the Ammonites, and concerning their reproach; even say thou, The sword, the sword [is] drawn_ for the slaughter [it is] furbished, to consume because of the glittering_
+
+**29** Whiles they see vanity unto thee, whiles they divine a lie unto thee, to bring thee upon the necks of [them that are] slain, of the wicked, whose day is come, when their iniquity [shall have] an end.
+
+**30** Shall I cause [it] to return into his sheath? I will judge thee in the place where thou wast created, in the land of thy nativity.
+
+**31** And I will pour out mine indignation upon thee, I will blow against thee in the fire of my wrath, and deliver thee into the hand of brutish men, [and] skilful to destroy.
+
+**32** Thou shalt be for fuel to the fire; thy blood shall be in the midst of the land; thou shalt be no [more] remembered_ for I the LORD have spoken [it].
+
+---
+
+## Cross-References
+
+- **Ezekiel 21_2** → **Micah 2_6** [[Micah ch_ 2.md]] (votes_ 2)
+- **Ezekiel 21_2** → **Ephesians 6_19** [[Ephesians ch_ 6.md]] (votes_ 2)
+- **Ezekiel 21_2** → **Ezekiel 4_7** [[Ezekiel ch_ 4.md]] (votes_ 4)
+- **Ezekiel 21_2** → **Micah 2_11** [[Micah ch_ 2.md]] (votes_ 2)
+- **Ezekiel 21_2** → **Ezekiel 25_2** [[Ezekiel ch_ 25.md]] (votes_ 3)
+- **Ezekiel 21_2** → **Ezekiel 4_3** [[Ezekiel ch_ 4.md]] (votes_ 2)
+- **Ezekiel 21_2** → **Ezekiel 36_1** [[Ezekiel ch_ 36.md]] (votes_ 2)
+- **Ezekiel 21_2** → **Amos 7_16** [[Amos ch_ 7.md]] (votes_ 2)
+- **Ezekiel 21_2** → **Ezekiel 6_2** [[Ezekiel ch_ 6.md]] (votes_ 2)
+- **Ezekiel 21_2** → **Ezekiel 28_21** [[Ezekiel ch_ 28.md]] (votes_ 3)
+- **Ezekiel 21_2** → **Deuteronomy 32_2** [[Deuteronomy ch_ 32.md]] (votes_ 2)
+- **Ezekiel 21_2** → **Ezekiel 38_2** [[Ezekiel ch_ 38.md]] (votes_ 2)
+- **Ezekiel 21_2** → **Ezekiel 29_2** [[Ezekiel ch_ 29.md]] (votes_ 2)
+- **Ezekiel 21_2** → **Ezekiel 20_46** [[Ezekiel ch_ 20.md]] (votes_ 9)
+- **Ezekiel 21_3** → **Nahum 3_5** [[Nahum ch_ 3.md]] (votes_ 3)
+- **Ezekiel 21_3** → **Job 9_22** [[Job ch_ 9.md]] (votes_ 4)
+- **Ezekiel 21_3** → **Ezekiel 14_21** [[Ezekiel ch_ 14.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Nahum 2_13** [[Nahum ch_ 2.md]] (votes_ 3)
+- **Ezekiel 21_3** → **Isaiah 10_5** [[Isaiah ch_ 10.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Jeremiah 21_13** [[Jeremiah ch_ 21.md]] (votes_ 4)
+- **Ezekiel 21_3** → **Psalms 17_13** [[Psalms ch_ 17.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Ezekiel 5_8** [[Ezekiel ch_ 5.md]] (votes_ 3)
+- **Ezekiel 21_3** → **Ezekiel 21_19** [[Ezekiel ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Ezekiel 5_12** [[Ezekiel ch_ 5.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Jeremiah 51_20** [[Jeremiah ch_ 51.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Jeremiah 50_31** [[Jeremiah ch_ 50.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Exodus 15_9** [[Exodus ch_ 15.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Leviticus 26_25** [[Leviticus ch_ 26.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Ezekiel 14_17** [[Ezekiel ch_ 14.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Ecclesiastes 9_2** [[Ecclesiastes ch_ 9.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Isaiah 34_5** [[Isaiah ch_ 34.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Zechariah 13_7** [[Zechariah ch_ 13.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Jeremiah 51_25** [[Jeremiah ch_ 51.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Ezekiel 26_3** [[Ezekiel ch_ 26.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Leviticus 26_33** [[Leviticus ch_ 26.md]] (votes_ 2)
+- **Ezekiel 21_3** → **Zephaniah 2_12** [[Zephaniah ch_ 2.md]] (votes_ 2)
+- **Ezekiel 21_4** → **Ezekiel 20_47** [[Ezekiel ch_ 20.md]] (votes_ 5)
+- **Ezekiel 21_4** → **Ezekiel 7_2** [[Ezekiel ch_ 7.md]] (votes_ 4)
+- **Ezekiel 21_5** → **Jeremiah 23_20** [[Jeremiah ch_ 23.md]] (votes_ 3)
+- **Ezekiel 21_5** → **Ezekiel 20_48** [[Ezekiel ch_ 20.md]] (votes_ 3)
+- **Ezekiel 21_5** → **Nahum 1_9** [[Nahum ch_ 1.md]] (votes_ 4)
+- **Ezekiel 21_5** → **1 Samuel 3_12** [[1 Samuel ch_ 3.md]] (votes_ 3)
+- **Ezekiel 21_5** → **Isaiah 45_23** [[Isaiah ch_ 45.md]] (votes_ 2)
+- **Ezekiel 21_5** → **Isaiah 55_11** [[Isaiah ch_ 55.md]] (votes_ 2)
+- **Ezekiel 21_5** → **Ezekiel 21_30** [[Ezekiel ch_ 21.md]] (votes_ 5)
+- **Ezekiel 21_6** → **Ezekiel 21_12** [[Ezekiel ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_6** → **Isaiah 16_11** [[Isaiah ch_ 16.md]] (votes_ 2)
+- **Ezekiel 21_6** → **Habakkuk 3_16** [[Habakkuk ch_ 3.md]] (votes_ 2)
+- **Ezekiel 21_6** → **Daniel 5_6** [[Daniel ch_ 5.md]] (votes_ 2)
+- **Ezekiel 21_6** → **Ezekiel 9_4** [[Ezekiel ch_ 9.md]] (votes_ 2)
+- **Ezekiel 21_6** → **Nahum 2_10** [[Nahum ch_ 2.md]] (votes_ 2)
+- **Ezekiel 21_6** → **Isaiah 22_4** [[Isaiah ch_ 22.md]] (votes_ 3)
+- **Ezekiel 21_6** → **Daniel 8_27** [[Daniel ch_ 8.md]] (votes_ 2)
+- **Ezekiel 21_6** → **Ezekiel 37_20** [[Ezekiel ch_ 37.md]] (votes_ 2)
+- **Ezekiel 21_6** → **Jeremiah 4_19** [[Jeremiah ch_ 4.md]] (votes_ 2)
+- **Ezekiel 21_6** → **Ezekiel 4_12** [[Ezekiel ch_ 4.md]] (votes_ 2)
+- **Ezekiel 21_6** → **Isaiah 21_3** [[Isaiah ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_6** → **Ezekiel 6_11** [[Ezekiel ch_ 6.md]] (votes_ 3)
+- **Ezekiel 21_6** → **Jeremiah 19_10** [[Jeremiah ch_ 19.md]] (votes_ 2)
+- **Ezekiel 21_6** → **Jeremiah 30_6** [[Jeremiah ch_ 30.md]] (votes_ 2)
+- **Ezekiel 21_7** → **Isaiah 7_2** [[Isaiah ch_ 7.md]] (votes_ 2)
+- **Ezekiel 21_7** → **Isaiah 28_19** [[Isaiah ch_ 28.md]] (votes_ 2)
+- **Ezekiel 21_7** → **Ezekiel 20_49** [[Ezekiel ch_ 20.md]] (votes_ 2)
+- **Ezekiel 21_7** → **Leviticus 26_36** [[Leviticus ch_ 26.md]] (votes_ 2)
+- **Ezekiel 21_7** → **Luke 21_26** [[Luke ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_7** → **2 Kings 21_12** [[2 Kings ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_7** → **2 Samuel 17_10** [[2 Samuel ch_ 17.md]] (votes_ 2)
+- **Ezekiel 21_7** → **Jeremiah 49_23** [[Jeremiah ch_ 49.md]] (votes_ 2)
+- **Ezekiel 21_7** → **Ezekiel 24_19** [[Ezekiel ch_ 24.md]] (votes_ 2)
+- **Ezekiel 21_7** → **Exodus 15_15** [[Exodus ch_ 15.md]] (votes_ 2)
+- **Ezekiel 21_7** → **Lamentations 5_17** [[Lamentations ch_ 5.md]] (votes_ 2)
+- **Ezekiel 21_7** → **Nahum 2_10** [[Nahum ch_ 2.md]] (votes_ 3)
+- **Ezekiel 21_7** → **Ezekiel 7_17** [[Ezekiel ch_ 7.md]] (votes_ 4)
+- **Ezekiel 21_7** → **Jeremiah 8_18** [[Jeremiah ch_ 8.md]] (votes_ 2)
+- **Ezekiel 21_7** → **Deuteronomy 20_8** [[Deuteronomy ch_ 20.md]] (votes_ 2)
+- **Ezekiel 21_7** → **Ezekiel 7_26** [[Ezekiel ch_ 7.md]] (votes_ 3)
+- **Ezekiel 21_7** → **Hebrews 12_12** [[Hebrews ch_ 12.md]] (votes_ 3)
+- **Ezekiel 21_7** → **Isaiah 35_3** [[Isaiah ch_ 35.md]] (votes_ 2)
+- **Ezekiel 21_7** → **1 Peter 4_7** [[1 Peter ch_ 4.md]] (votes_ 1)
+- **Ezekiel 21_7** → **Jeremiah 50_43** [[Jeremiah ch_ 50.md]] (votes_ 3)
+- **Ezekiel 21_7** → **Joshua 5_1** [[Joshua ch_ 5.md]] (votes_ 2)
+- **Ezekiel 21_7** → **Isaiah 13_7** [[Isaiah ch_ 13.md]] (votes_ 3)
+- **Ezekiel 21_9** → **Isaiah 27_1** [[Isaiah ch_ 27.md]] (votes_ 2)
+- **Ezekiel 21_9** → **Amos 9_4** [[Amos ch_ 9.md]] (votes_ 2)
+- **Ezekiel 21_9** → **Jeremiah 12_12** [[Jeremiah ch_ 12.md]] (votes_ 2)
+- **Ezekiel 21_9** → **Job 20_25** [[Job ch_ 20.md]] (votes_ 2)
+- **Ezekiel 21_9** → **Jeremiah 15_2** [[Jeremiah ch_ 15.md]] (votes_ 2)
+- **Ezekiel 21_9** → **Ezekiel 21_15** [[Ezekiel ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_9** → **Ezekiel 21_3** [[Ezekiel ch_ 21.md]] (votes_ 3)
+- **Ezekiel 21_9** → **Isaiah 66_16** [[Isaiah ch_ 66.md]] (votes_ 2)
+- **Ezekiel 21_9** → **Ezekiel 21_28** [[Ezekiel ch_ 21.md]] (votes_ 3)
+- **Ezekiel 21_10** → **Jeremiah 46_4** [[Jeremiah ch_ 46.md]] (votes_ 2)
+- **Ezekiel 21_10** → **Nahum 1_10** [[Nahum ch_ 1.md]] (votes_ 2)
+- **Ezekiel 21_10** → **Ezekiel 20_47** [[Ezekiel ch_ 20.md]] (votes_ 3)
+- **Ezekiel 21_10** → **Ecclesiastes 3_4** [[Ecclesiastes ch_ 3.md]] (votes_ 2)
+- **Ezekiel 21_10** → **2 Samuel 7_14** [[2 Samuel ch_ 7.md]] (votes_ 2)
+- **Ezekiel 21_10** → **Habakkuk 3_11** [[Habakkuk ch_ 3.md]] (votes_ 2)
+- **Ezekiel 21_10** → **Nahum 3_3** [[Nahum ch_ 3.md]] (votes_ 2)
+- **Ezekiel 21_10** → **Esther 3_15** [[Esther ch_ 3.md]] (votes_ 2)
+- **Ezekiel 21_10** → **Revelation 2_27** [[Revelation ch_ 2.md]] (votes_ 2)
+- **Ezekiel 21_11** → **Ezekiel 21_19** [[Ezekiel ch_ 21.md]] (votes_ 3)
+- **Ezekiel 21_11** → **Jeremiah 25_9** [[Jeremiah ch_ 25.md]] (votes_ 2)
+- **Ezekiel 21_11** → **Jeremiah 25_33** [[Jeremiah ch_ 25.md]] (votes_ 2)
+- **Ezekiel 21_12** → **Jeremiah 25_34** [[Jeremiah ch_ 25.md]] (votes_ 2)
+- **Ezekiel 21_12** → **Ezekiel 6_11** [[Ezekiel ch_ 6.md]] (votes_ 2)
+- **Ezekiel 21_12** → **Ezekiel 9_8** [[Ezekiel ch_ 9.md]] (votes_ 2)
+- **Ezekiel 21_12** → **Jeremiah 31_12** [[Jeremiah ch_ 31.md]] (votes_ 2)
+- **Ezekiel 21_12** → **Micah 1_8** [[Micah ch_ 1.md]] (votes_ 2)
+- **Ezekiel 21_12** → **Ezekiel 30_2** [[Ezekiel ch_ 30.md]] (votes_ 2)
+- **Ezekiel 21_12** → **Ezekiel 21_14** [[Ezekiel ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_12** → **Jeremiah 31_19** [[Jeremiah ch_ 31.md]] (votes_ 2)
+- **Ezekiel 21_12** → **Joel 1_13** [[Joel ch_ 1.md]] (votes_ 3)
+- **Ezekiel 21_12** → **Ezekiel 21_6** [[Ezekiel ch_ 21.md]] (votes_ 4)
+- **Ezekiel 21_13** → **2 Corinthians 8_2** [[2 Corinthians ch_ 8.md]] (votes_ 3)
+- **Ezekiel 21_13** → **Ezekiel 21_10** [[Ezekiel ch_ 21.md]] (votes_ 3)
+- **Ezekiel 21_13** → **Job 9_23** [[Job ch_ 9.md]] (votes_ 2)
+- **Ezekiel 21_13** → **Ezekiel 21_25** [[Ezekiel ch_ 21.md]] (votes_ 3)
+- **Ezekiel 21_14** → **Amos 9_2** [[Amos ch_ 9.md]] (votes_ 2)
+- **Ezekiel 21_14** → **Ezekiel 21_17** [[Ezekiel ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_14** → **Leviticus 26_24** [[Leviticus ch_ 26.md]] (votes_ 3)
+- **Ezekiel 21_14** → **Leviticus 26_21** [[Leviticus ch_ 26.md]] (votes_ 3)
+- **Ezekiel 21_14** → **Numbers 24_10** [[Numbers ch_ 24.md]] (votes_ 4)
+- **Ezekiel 21_14** → **Daniel 3_19** [[Daniel ch_ 3.md]] (votes_ 2)
+- **Ezekiel 21_14** → **Ezekiel 6_11** [[Ezekiel ch_ 6.md]] (votes_ 3)
+- **Ezekiel 21_14** → **Ezekiel 8_12** [[Ezekiel ch_ 8.md]] (votes_ 2)
+- **Ezekiel 21_14** → **2 Kings 24_1** [[2 Kings ch_ 24.md]] (votes_ 4)
+- **Ezekiel 21_14** → **1 Kings 22_25** [[1 Kings ch_ 22.md]] (votes_ 2)
+- **Ezekiel 21_14** → **1 Kings 20_30** [[1 Kings ch_ 20.md]] (votes_ 2)
+- **Ezekiel 21_15** → **2 Samuel 17_10** [[2 Samuel ch_ 17.md]] (votes_ 2)
+- **Ezekiel 21_15** → **Psalms 22_14** [[Psalms ch_ 22.md]] (votes_ 2)
+- **Ezekiel 21_15** → **Ezekiel 20_47** [[Ezekiel ch_ 20.md]] (votes_ 2)
+- **Ezekiel 21_15** → **Ezekiel 21_28** [[Ezekiel ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_15** → **Ezekiel 21_7** [[Ezekiel ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_15** → **Jeremiah 17_27** [[Jeremiah ch_ 17.md]] (votes_ 3)
+- **Ezekiel 21_15** → **Ezekiel 15_7** [[Ezekiel ch_ 15.md]] (votes_ 2)
+- **Ezekiel 21_15** → **Ezekiel 21_22** [[Ezekiel ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_15** → **Ezekiel 21_10** [[Ezekiel ch_ 21.md]] (votes_ 3)
+- **Ezekiel 21_16** → **Genesis 13_9** [[Genesis ch_ 13.md]] (votes_ 2)
+- **Ezekiel 21_16** → **Ezekiel 21_4** [[Ezekiel ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_16** → **Ezekiel 16_46** [[Ezekiel ch_ 16.md]] (votes_ 2)
+- **Ezekiel 21_16** → **Ezekiel 21_20** [[Ezekiel ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_16** → **Ezekiel 14_17** [[Ezekiel ch_ 14.md]] (votes_ 2)
+- **Ezekiel 21_17** → **Ezekiel 16_42** [[Ezekiel ch_ 16.md]] (votes_ 2)
+- **Ezekiel 21_17** → **Ezekiel 21_14** [[Ezekiel ch_ 21.md]] (votes_ 4)
+- **Ezekiel 21_17** → **Ezekiel 5_13** [[Ezekiel ch_ 5.md]] (votes_ 5)
+- **Ezekiel 21_17** → **Numbers 24_10** [[Numbers ch_ 24.md]] (votes_ 2)
+- **Ezekiel 21_17** → **Zechariah 6_8** [[Zechariah ch_ 6.md]] (votes_ 3)
+- **Ezekiel 21_17** → **Ezekiel 22_13** [[Ezekiel ch_ 22.md]] (votes_ 3)
+- **Ezekiel 21_17** → **Deuteronomy 28_63** [[Deuteronomy ch_ 28.md]] (votes_ 2)
+- **Ezekiel 21_17** → **Isaiah 1_24** [[Isaiah ch_ 1.md]] (votes_ 2)
+- **Ezekiel 21_19** → **Jeremiah 1_10** [[Jeremiah ch_ 1.md]] (votes_ 3)
+- **Ezekiel 21_20** → **2 Samuel 5_9** [[2 Samuel ch_ 5.md]] (votes_ 2)
+- **Ezekiel 21_20** → **2 Samuel 12_26** [[2 Samuel ch_ 12.md]] (votes_ 2)
+- **Ezekiel 21_20** → **Jeremiah 49_2** [[Jeremiah ch_ 49.md]] (votes_ 5)
+- **Ezekiel 21_20** → **Amos 1_14** [[Amos ch_ 1.md]] (votes_ 5)
+- **Ezekiel 21_20** → **Lamentations 4_12** [[Lamentations ch_ 4.md]] (votes_ 2)
+- **Ezekiel 21_20** → **Deuteronomy 3_11** [[Deuteronomy ch_ 3.md]] (votes_ 4)
+- **Ezekiel 21_20** → **2 Chronicles 26_9** [[2 Chronicles ch_ 26.md]] (votes_ 2)
+- **Ezekiel 21_20** → **Isaiah 22_10** [[Isaiah ch_ 22.md]] (votes_ 2)
+- **Ezekiel 21_20** → **Ezekiel 25_5** [[Ezekiel ch_ 25.md]] (votes_ 4)
+- **Ezekiel 21_20** → **2 Chronicles 33_14** [[2 Chronicles ch_ 33.md]] (votes_ 2)
+- **Ezekiel 21_20** → **2 Chronicles 32_5** [[2 Chronicles ch_ 32.md]] (votes_ 2)
+- **Ezekiel 21_21** → **2 Kings 23_24** [[2 Kings ch_ 23.md]] (votes_ 2)
+- **Ezekiel 21_21** → **Proverbs 16_33** [[Proverbs ch_ 16.md]] (votes_ 4)
+- **Ezekiel 21_21** → **Proverbs 21_1** [[Proverbs ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_21** → **Judges 18_24** [[Judges ch_ 18.md]] (votes_ 2)
+- **Ezekiel 21_21** → **Judges 18_20** [[Judges ch_ 18.md]] (votes_ 4)
+- **Ezekiel 21_21** → **Numbers 22_7** [[Numbers ch_ 22.md]] (votes_ 2)
+- **Ezekiel 21_21** → **Zechariah 10_2** [[Zechariah ch_ 10.md]] (votes_ 2)
+- **Ezekiel 21_21** → **Deuteronomy 18_10** [[Deuteronomy ch_ 18.md]] (votes_ 2)
+- **Ezekiel 21_21** → **Judges 18_14** [[Judges ch_ 18.md]] (votes_ 2)
+- **Ezekiel 21_21** → **Genesis 31_19** [[Genesis ch_ 31.md]] (votes_ 3)
+- **Ezekiel 21_21** → **Judges 18_18** [[Judges ch_ 18.md]] (votes_ 2)
+- **Ezekiel 21_21** → **Acts 16_16** [[Acts ch_ 16.md]] (votes_ 3)
+- **Ezekiel 21_21** → **Hosea 4_12** [[Hosea ch_ 4.md]] (votes_ 2)
+- **Ezekiel 21_21** → **1 Samuel 15_23** [[1 Samuel ch_ 15.md]] (votes_ 2)
+- **Ezekiel 21_21** → **Numbers 23_23** [[Numbers ch_ 23.md]] (votes_ 2)
+- **Ezekiel 21_21** → **Genesis 31_30** [[Genesis ch_ 31.md]] (votes_ 3)
+- **Ezekiel 21_21** → **Numbers 23_28** [[Numbers ch_ 23.md]] (votes_ 2)
+- **Ezekiel 21_21** → **Judges 17_5** [[Judges ch_ 17.md]] (votes_ 4)
+- **Ezekiel 21_21** → **Proverbs 16_10** [[Proverbs ch_ 16.md]] (votes_ 2)
+- **Ezekiel 21_21** → **Hosea 3_4** [[Hosea ch_ 3.md]] (votes_ 2)
+- **Ezekiel 21_22** → **Joshua 6_10** [[Joshua ch_ 6.md]] (votes_ 2)
+- **Ezekiel 21_22** → **Job 39_25** [[Job ch_ 39.md]] (votes_ 2)
+- **Ezekiel 21_22** → **Jeremiah 51_14** [[Jeremiah ch_ 51.md]] (votes_ 2)
+- **Ezekiel 21_22** → **Ezekiel 26_9** [[Ezekiel ch_ 26.md]] (votes_ 3)
+- **Ezekiel 21_22** → **Joshua 6_20** [[Joshua ch_ 6.md]] (votes_ 2)
+- **Ezekiel 21_22** → **Ezekiel 4_2** [[Ezekiel ch_ 4.md]] (votes_ 8)
+- **Ezekiel 21_22** → **1 Samuel 17_20** [[1 Samuel ch_ 17.md]] (votes_ 2)
+- **Ezekiel 21_22** → **Jeremiah 52_4** [[Jeremiah ch_ 52.md]] (votes_ 2)
+- **Ezekiel 21_22** → **Jeremiah 32_24** [[Jeremiah ch_ 32.md]] (votes_ 2)
+- **Ezekiel 21_22** → **Jeremiah 33_4** [[Jeremiah ch_ 33.md]] (votes_ 2)
+- **Ezekiel 21_23** → **Ezekiel 12_22** [[Ezekiel ch_ 12.md]] (votes_ 2)
+- **Ezekiel 21_23** → **1 Kings 17_18** [[1 Kings ch_ 17.md]] (votes_ 2)
+- **Ezekiel 21_23** → **Ezekiel 21_24** [[Ezekiel ch_ 21.md]] (votes_ 3)
+- **Ezekiel 21_23** → **Numbers 5_15** [[Numbers ch_ 5.md]] (votes_ 4)
+- **Ezekiel 21_23** → **2 Chronicles 36_13** [[2 Chronicles ch_ 36.md]] (votes_ 2)
+- **Ezekiel 21_23** → **Ezekiel 11_3** [[Ezekiel ch_ 11.md]] (votes_ 2)
+- **Ezekiel 21_23** → **Revelation 16_19** [[Revelation ch_ 16.md]] (votes_ 2)
+- **Ezekiel 21_23** → **Ezekiel 29_16** [[Ezekiel ch_ 29.md]] (votes_ 3)
+- **Ezekiel 21_24** → **Jeremiah 2_34** [[Jeremiah ch_ 2.md]] (votes_ 2)
+- **Ezekiel 21_24** → **Jeremiah 6_15** [[Jeremiah ch_ 6.md]] (votes_ 2)
+- **Ezekiel 21_24** → **Ezekiel 24_7** [[Ezekiel ch_ 24.md]] (votes_ 2)
+- **Ezekiel 21_24** → **Hosea 4_2** [[Hosea ch_ 4.md]] (votes_ 3)
+- **Ezekiel 21_24** → **Jeremiah 3_2** [[Jeremiah ch_ 3.md]] (votes_ 2)
+- **Ezekiel 21_24** → **Jeremiah 15_2** [[Jeremiah ch_ 15.md]] (votes_ 2)
+- **Ezekiel 21_24** → **Jeremiah 8_12** [[Jeremiah ch_ 8.md]] (votes_ 2)
+- **Ezekiel 21_24** → **Isaiah 3_9** [[Isaiah ch_ 3.md]] (votes_ 2)
+- **Ezekiel 21_25** → **Jeremiah 52_2** [[Jeremiah ch_ 52.md]] (votes_ 3)
+- **Ezekiel 21_25** → **2 Chronicles 36_13** [[2 Chronicles ch_ 36.md]] (votes_ 3)
+- **Ezekiel 21_25** → **Ezekiel 21_29** [[Ezekiel ch_ 21.md]] (votes_ 3)
+- **Ezekiel 21_25** → **Ezekiel 35_5** [[Ezekiel ch_ 35.md]] (votes_ 4)
+- **Ezekiel 21_25** → **Psalms 7_9** [[Psalms ch_ 7.md]] (votes_ 2)
+- **Ezekiel 21_25** → **Jeremiah 24_8** [[Jeremiah ch_ 24.md]] (votes_ 2)
+- **Ezekiel 21_25** → **Ezekiel 17_19** [[Ezekiel ch_ 17.md]] (votes_ 3)
+- **Ezekiel 21_25** → **Ezekiel 30_3** [[Ezekiel ch_ 30.md]] (votes_ 2)
+- **Ezekiel 21_25** → **Ezekiel 7_6** [[Ezekiel ch_ 7.md]] (votes_ 2)
+- **Ezekiel 21_25** → **Jeremiah 51_13** [[Jeremiah ch_ 51.md]] (votes_ 2)
+- **Ezekiel 21_26** → **Luke 1_52** [[Luke ch_ 1.md]] (votes_ 3)
+- **Ezekiel 21_26** → **Ezekiel 16_12** [[Ezekiel ch_ 16.md]] (votes_ 3)
+- **Ezekiel 21_26** → **Ezekiel 17_24** [[Ezekiel ch_ 17.md]] (votes_ 6)
+- **Ezekiel 21_26** → **Psalms 75_7** [[Psalms ch_ 75.md]] (votes_ 5)
+- **Ezekiel 21_26** → **Jeremiah 13_18** [[Jeremiah ch_ 13.md]] (votes_ 4)
+- **Ezekiel 21_26** → **Lamentations 5_16** [[Lamentations ch_ 5.md]] (votes_ 2)
+- **Ezekiel 21_26** → **2 Kings 25_27** [[2 Kings ch_ 25.md]] (votes_ 2)
+- **Ezekiel 21_26** → **2 Kings 25_6** [[2 Kings ch_ 25.md]] (votes_ 2)
+- **Ezekiel 21_27** → **Daniel 2_44** [[Daniel ch_ 2.md]] (votes_ 5)
+- **Ezekiel 21_27** → **Jeremiah 33_26** [[Jeremiah ch_ 33.md]] (votes_ 5)
+- **Ezekiel 21_27** → **Jeremiah 30_21** [[Jeremiah ch_ 30.md]] (votes_ 5)
+- **Ezekiel 21_27** → **Hosea 3_5** [[Hosea ch_ 3.md]] (votes_ 8)
+- **Ezekiel 21_27** → **Jeremiah 33_21** [[Jeremiah ch_ 33.md]] (votes_ 3)
+- **Ezekiel 21_27** → **John 1_4** [[John ch_ 1.md]] (votes_ 3)
+- **Ezekiel 21_27** → **Malachi 4_2** [[Malachi ch_ 4.md]] (votes_ 6)
+- **Ezekiel 21_27** → **Matthew 28_18** [[Matthew ch_ 28.md]] (votes_ 9)
+- **Ezekiel 21_27** → **Micah 5_2** [[Micah ch_ 5.md]] (votes_ 13)
+- **Ezekiel 21_27** → **Luke 2_11** [[Luke ch_ 2.md]] (votes_ 5)
+- **Ezekiel 21_27** → **John 1_9** [[John ch_ 1.md]] (votes_ 9)
+- **Ezekiel 21_27** → **Malachi 3_1** [[Malachi ch_ 3.md]] (votes_ 9)
+- **Ezekiel 21_27** → **Ezekiel 34_23** [[Ezekiel ch_ 34.md]] (votes_ 5)
+- **Ezekiel 21_27** → **Haggai 2_7** [[Haggai ch_ 2.md]] (votes_ 3)
+- **Ezekiel 21_27** → **Numbers 24_19** [[Numbers ch_ 24.md]] (votes_ 3)
+- **Ezekiel 21_27** → **Ezekiel 21_13** [[Ezekiel ch_ 21.md]] (votes_ 6)
+- **Ezekiel 21_27** → **Genesis 49_10** [[Genesis ch_ 49.md]] (votes_ 9)
+- **Ezekiel 21_27** → **Luke 1_32** [[Luke ch_ 1.md]] (votes_ 10)
+- **Ezekiel 21_27** → **Daniel 9_25** [[Daniel ch_ 9.md]] (votes_ 5)
+- **Ezekiel 21_27** → **Psalms 2_6** [[Psalms ch_ 2.md]] (votes_ 10)
+- **Ezekiel 21_27** → **Zechariah 9_9** [[Zechariah ch_ 9.md]] (votes_ 10)
+- **Ezekiel 21_27** → **Luke 1_69** [[Luke ch_ 1.md]] (votes_ 3)
+- **Ezekiel 21_27** → **1 Peter 3_22** [[1 Peter ch_ 3.md]] (votes_ 9)
+- **Ezekiel 21_28** → **Ezekiel 21_20** [[Ezekiel ch_ 21.md]] (votes_ 3)
+- **Ezekiel 21_28** → **Jeremiah 12_12** [[Jeremiah ch_ 12.md]] (votes_ 2)
+- **Ezekiel 21_29** → **Ezekiel 22_28** [[Ezekiel ch_ 22.md]] (votes_ 4)
+- **Ezekiel 21_29** → **Isaiah 47_13** [[Isaiah ch_ 47.md]] (votes_ 2)
+- **Ezekiel 21_29** → **Ezekiel 13_23** [[Ezekiel ch_ 13.md]] (votes_ 2)
+- **Ezekiel 21_29** → **Job 18_20** [[Job ch_ 18.md]] (votes_ 2)
+- **Ezekiel 21_29** → **Ezekiel 13_10** [[Ezekiel ch_ 13.md]] (votes_ 2)
+- **Ezekiel 21_29** → **Isaiah 44_25** [[Isaiah ch_ 44.md]] (votes_ 2)
+- **Ezekiel 21_29** → **Lamentations 2_14** [[Lamentations ch_ 2.md]] (votes_ 2)
+- **Ezekiel 21_29** → **Ezekiel 21_25** [[Ezekiel ch_ 21.md]] (votes_ 5)
+- **Ezekiel 21_29** → **Psalms 37_13** [[Psalms ch_ 37.md]] (votes_ 3)
+- **Ezekiel 21_29** → **Ezekiel 35_5** [[Ezekiel ch_ 35.md]] (votes_ 2)
+- **Ezekiel 21_29** → **Jeremiah 27_9** [[Jeremiah ch_ 27.md]] (votes_ 3)
+- **Ezekiel 21_29** → **Ezekiel 13_6** [[Ezekiel ch_ 13.md]] (votes_ 2)
+- **Ezekiel 21_29** → **Ezekiel 12_24** [[Ezekiel ch_ 12.md]] (votes_ 2)
+- **Ezekiel 21_30** → **Ezekiel 28_15** [[Ezekiel ch_ 28.md]] (votes_ 2)
+- **Ezekiel 21_30** → **Ezekiel 28_13** [[Ezekiel ch_ 28.md]] (votes_ 2)
+- **Ezekiel 21_30** → **Ezekiel 16_38** [[Ezekiel ch_ 16.md]] (votes_ 3)
+- **Ezekiel 21_30** → **Genesis 15_14** [[Genesis ch_ 15.md]] (votes_ 3)
+- **Ezekiel 21_31** → **Psalms 18_15** [[Psalms ch_ 18.md]] (votes_ 4)
+- **Ezekiel 21_31** → **Isaiah 37_7** [[Isaiah ch_ 37.md]] (votes_ 3)
+- **Ezekiel 21_31** → **Haggai 1_9** [[Haggai ch_ 1.md]] (votes_ 4)
+- **Ezekiel 21_31** → **Isaiah 40_7** [[Isaiah ch_ 40.md]] (votes_ 3)
+- **Ezekiel 21_31** → **Nahum 1_6** [[Nahum ch_ 1.md]] (votes_ 4)
+- **Ezekiel 21_31** → **Jeremiah 4_7** [[Jeremiah ch_ 4.md]] (votes_ 4)
+- **Ezekiel 21_31** → **Isaiah 30_33** [[Isaiah ch_ 30.md]] (votes_ 4)
+- **Ezekiel 21_31** → **Ezekiel 14_19** [[Ezekiel ch_ 14.md]] (votes_ 4)
+- **Ezekiel 21_31** → **Ezekiel 7_8** [[Ezekiel ch_ 7.md]] (votes_ 4)
+- **Ezekiel 21_32** → **Malachi 4_1** [[Malachi ch_ 4.md]] (votes_ 4)
+- **Ezekiel 21_32** → **Numbers 23_19** [[Numbers ch_ 23.md]] (votes_ 2)
+- **Ezekiel 21_32** → **Matthew 3_10** [[Matthew ch_ 3.md]] (votes_ 2)
+- **Ezekiel 21_32** → **Ezekiel 21_30** [[Ezekiel ch_ 21.md]] (votes_ 2)
+- **Ezekiel 21_32** → **Matthew 3_12** [[Matthew ch_ 3.md]] (votes_ 2)
+- **Ezekiel 21_32** → **Matthew 24_35** [[Matthew ch_ 24.md]] (votes_ 2)
+- **Ezekiel 21_32** → **Ezekiel 25_10** [[Ezekiel ch_ 25.md]] (votes_ 6)
+- **Ezekiel 21_32** → **Zephaniah 2_9** [[Zephaniah ch_ 2.md]] (votes_ 2)

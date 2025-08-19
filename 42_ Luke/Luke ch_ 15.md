@@ -1,0 +1,358 @@
+# Luke 15
+
+**1** ¶ Then drew near unto him all the publicans and sinners for to hear him.
+
+**2** And the Pharisees and scribes murmured, saying, This man receiveth sinners, and eateth with them.
+
+**3** And he spake this parable unto them, saying,
+
+**4** ‹What man of you, having an hundred sheep, if he lose one of them, doth not leave the ninety and nine in the wilderness, and go after that which is lost, until he find it?›
+
+**5** ‹And when he hath found› [it], ‹he layeth› [it] ‹on his shoulders, rejoicing.›
+
+**6** ‹And when he cometh home, he calleth together› [his] ‹friends and neighbours, saying unto them, Rejoice with me; for I have found my sheep which was lost.›
+
+**7** ‹I say unto you, that likewise joy shall be in heaven over one sinner that repenteth, more than over ninety and nine just persons, which need no repentance.›
+
+**8** ‹Either what woman having ten pieces of silver, if she lose one piece, doth not light a candle, and sweep the house, and seek diligently till she find› [it]?
+
+**9** ‹And when she hath found› [it], ‹she calleth› [her] ‹friends and› [her] ‹neighbours together, saying, Rejoice with me; for I have found the piece which I had lost.›
+
+**10** ‹Likewise, I say unto you, there is joy in the presence of the angels of God over one sinner that repenteth.›
+
+**11** ¶ And he said, ‹A certain man had two sons_›
+
+**12** ‹And the younger of them said to› [his] ‹father, Father, give me the portion of goods that falleth› [to me]. ‹And he divided unto them› [his] ‹living.›
+
+**13** ‹And not many days after the younger son gathered all together, and took his journey into a far country, and there wasted his substance with riotous living.›
+
+**14** ‹And when he had spent all, there arose a mighty famine in that land; and he began to be in want.›
+
+**15** ‹And he went and joined himself to a citizen of that country; and he sent him into his fields to feed swine.›
+
+**16** ‹And he would fain have filled his belly with the husks that the swine did eat_ and no man gave unto him.›
+
+**17** ‹And when he came to himself, he said, How many hired servants of my father's have bread enough and to spare, and I perish with hunger!›
+
+**18** ‹I will arise and go to my father, and will say unto him, Father, I have sinned against heaven, and before thee,›
+
+**19** ‹And am no more worthy to be called thy son_ make me as one of thy hired servants.›
+
+**20** ‹And he arose, and came to his father. But when he was yet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him.›
+
+**21** ‹And the son said unto him, Father, I have sinned against heaven, and in thy sight, and am no more worthy to be called thy son.›
+
+**22** ‹But the father said to his servants, Bring forth the best robe, and put› [it] ‹on him; and put a ring on his hand, and shoes on› [his] ‹feet_›
+
+**23** ‹And bring hither the fatted calf, and kill› [it]; ‹and let us eat, and be merry_›
+
+**24** ‹For this my son was dead, and is alive again; he was lost, and is found. And they began to be merry.›
+
+**25** ‹Now his elder son was in the field_ and as he came and drew nigh to the house, he heard musick and dancing.›
+
+**26** ‹And he called one of the servants, and asked what these things meant.›
+
+**27** ‹And he said unto him, Thy brother is come; and thy father hath killed the fatted calf, because he hath received him safe and sound.›
+
+**28** ‹And he was angry, and would not go in_ therefore came his father out, and intreated him.›
+
+**29** ‹And he answering said to› [his] ‹father, Lo, these many years do I serve thee, neither transgressed I at any time thy commandment_ and yet thou never gavest me a kid, that I might make merry with my friends_›
+
+**30** ‹But as soon as this thy son was come, which hath devoured thy living with harlots, thou hast killed for him the fatted calf.›
+
+**31** ‹And he said unto him, Son, thou art ever with me, and all that I have is thine.›
+
+**32** ‹It was meet that we should make merry, and be glad_ for this thy brother was dead, and is alive again; and was lost, and is found.›
+
+---
+
+## Cross-References
+
+- **Luke 15_1** → **Romans 5_20** [[Romans ch_ 5.md]] (votes_ 2)
+- **Luke 15_1** → **Luke 13_30** [[Luke ch_ 13.md]] (votes_ 0)
+- **Luke 15_1** → **1 Timothy 1_15** [[1 Timothy ch_ 1.md]] (votes_ 13)
+- **Luke 15_1** → **Luke 7_29** [[Luke ch_ 7.md]] (votes_ 2)
+- **Luke 15_1** → **Ezekiel 18_27** [[Ezekiel ch_ 18.md]] (votes_ 3)
+- **Luke 15_2** → **Luke 5_30** [[Luke ch_ 5.md]] (votes_ 6)
+- **Luke 15_2** → **Luke 19_7** [[Luke ch_ 19.md]] (votes_ 8)
+- **Luke 15_2** → **Matthew 9_11** [[Matthew ch_ 9.md]] (votes_ 12)
+- **Luke 15_2** → **Luke 7_34** [[Luke ch_ 7.md]] (votes_ 5)
+- **Luke 15_2** → **Galatians 2_12** [[Galatians ch_ 2.md]] (votes_ 4)
+- **Luke 15_2** → **Luke 7_39** [[Luke ch_ 7.md]] (votes_ 8)
+- **Luke 15_2** → **Acts 11_3** [[Acts ch_ 11.md]] (votes_ 5)
+- **Luke 15_4** → **Ezekiel 34_8** [[Ezekiel ch_ 34.md]] (votes_ 8)
+- **Luke 15_4** → **Romans 2_1** [[Romans ch_ 2.md]] (votes_ 6)
+- **Luke 15_4** → **Psalms 119_176** [[Psalms ch_ 119.md]] (votes_ 14)
+- **Luke 15_4** → **Isaiah 53_6** [[Isaiah ch_ 53.md]] (votes_ 12)
+- **Luke 15_4** → **Luke 19_10** [[Luke ch_ 19.md]] (votes_ 18)
+- **Luke 15_4** → **Ezekiel 34_16** [[Ezekiel ch_ 34.md]] (votes_ 25)
+- **Luke 15_4** → **Matthew 12_11** [[Matthew ch_ 12.md]] (votes_ 13)
+- **Luke 15_4** → **1 Peter 2_25** [[1 Peter ch_ 2.md]] (votes_ 16)
+- **Luke 15_4** → **Luke 13_15** [[Luke ch_ 13.md]] (votes_ 8)
+- **Luke 15_4** → **Ezekiel 34_31** [[Ezekiel ch_ 34.md]] (votes_ 14)
+- **Luke 15_4** → **Jeremiah 50_6** [[Jeremiah ch_ 50.md]] (votes_ 10)
+- **Luke 15_5** → **Isaiah 62_12** [[Isaiah ch_ 62.md]] (votes_ 2)
+- **Luke 15_5** → **Isaiah 62_5** [[Isaiah ch_ 62.md]] (votes_ 2)
+- **Luke 15_5** → **Hebrews 12_2** [[Hebrews ch_ 12.md]] (votes_ 5)
+- **Luke 15_5** → **1 Peter 1_5** [[1 Peter ch_ 1.md]] (votes_ 2)
+- **Luke 15_5** → **Luke 23_43** [[Luke ch_ 23.md]] (votes_ 3)
+- **Luke 15_5** → **Luke 19_9** [[Luke ch_ 19.md]] (votes_ 4)
+- **Luke 15_5** → **Ephesians 3_7** [[Ephesians ch_ 3.md]] (votes_ 2)
+- **Luke 15_5** → **1 Thessalonians 1_5** [[1 Thessalonians ch_ 1.md]] (votes_ 2)
+- **Luke 15_5** → **Ephesians 2_10** [[Ephesians ch_ 2.md]] (votes_ 2)
+- **Luke 15_5** → **2 Timothy 2_26** [[2 Timothy ch_ 2.md]] (votes_ 2)
+- **Luke 15_5** → **Zephaniah 3_17** [[Zephaniah ch_ 3.md]] (votes_ 2)
+- **Luke 15_5** → **John 15_11** [[John ch_ 15.md]] (votes_ 2)
+- **Luke 15_5** → **Micah 7_18** [[Micah ch_ 7.md]] (votes_ 4)
+- **Luke 15_5** → **Ezekiel 18_23** [[Ezekiel ch_ 18.md]] (votes_ 3)
+- **Luke 15_5** → **Isaiah 63_9** [[Isaiah ch_ 63.md]] (votes_ 2)
+- **Luke 15_5** → **Luke 15_32** [[Luke ch_ 15.md]] (votes_ 3)
+- **Luke 15_5** → **Micah 5_4** [[Micah ch_ 5.md]] (votes_ 2)
+- **Luke 15_5** → **Ezekiel 33_11** [[Ezekiel ch_ 33.md]] (votes_ 2)
+- **Luke 15_6** → **Luke 15_24** [[Luke ch_ 15.md]] (votes_ 6)
+- **Luke 15_6** → **Philippians 1_4** [[Philippians ch_ 1.md]] (votes_ 2)
+- **Luke 15_6** → **Luke 15_7** [[Luke ch_ 15.md]] (votes_ 3)
+- **Luke 15_6** → **Philippians 2_17** [[Philippians ch_ 2.md]] (votes_ 3)
+- **Luke 15_6** → **Acts 11_23** [[Acts ch_ 11.md]] (votes_ 4)
+- **Luke 15_6** → **John 3_29** [[John ch_ 3.md]] (votes_ 3)
+- **Luke 15_6** → **John 15_14** [[John ch_ 15.md]] (votes_ 3)
+- **Luke 15_6** → **1 Peter 2_10** [[1 Peter ch_ 2.md]] (votes_ 2)
+- **Luke 15_6** → **1 Peter 2_25** [[1 Peter ch_ 2.md]] (votes_ 5)
+- **Luke 15_6** → **Philippians 4_1** [[Philippians ch_ 4.md]] (votes_ 2)
+- **Luke 15_6** → **1 Thessalonians 2_19** [[1 Thessalonians ch_ 2.md]] (votes_ 2)
+- **Luke 15_6** → **Acts 15_3** [[Acts ch_ 15.md]] (votes_ 3)
+- **Luke 15_6** → **Luke 15_10** [[Luke ch_ 15.md]] (votes_ 7)
+- **Luke 15_6** → **Psalms 119_176** [[Psalms ch_ 119.md]] (votes_ 4)
+- **Luke 15_7** → **Luke 15_10** [[Luke ch_ 15.md]] (votes_ 37)
+- **Luke 15_7** → **Luke 5_32** [[Luke ch_ 5.md]] (votes_ 39)
+- **Luke 15_7** → **Proverbs 30_12** [[Proverbs ch_ 30.md]] (votes_ 22)
+- **Luke 15_7** → **Luke 15_32** [[Luke ch_ 15.md]] (votes_ 30)
+- **Luke 15_7** → **Romans 7_9** [[Romans ch_ 7.md]] (votes_ 17)
+- **Luke 15_7** → **Luke 16_15** [[Luke ch_ 16.md]] (votes_ 17)
+- **Luke 15_7** → **Matthew 18_13** [[Matthew ch_ 18.md]] (votes_ 28)
+- **Luke 15_7** → **Luke 15_29** [[Luke ch_ 15.md]] (votes_ 14)
+- **Luke 15_8** → **Ezekiel 34_12** [[Ezekiel ch_ 34.md]] (votes_ 11)
+- **Luke 15_8** → **Luke 19_10** [[Luke ch_ 19.md]] (votes_ 12)
+- **Luke 15_8** → **John 11_52** [[John ch_ 11.md]] (votes_ 6)
+- **Luke 15_8** → **John 10_16** [[John ch_ 10.md]] (votes_ 7)
+- **Luke 15_8** → **Ephesians 2_17** [[Ephesians ch_ 2.md]] (votes_ 2)
+- **Luke 15_10** → **Luke 13_5** [[Luke ch_ 13.md]] (votes_ 12)
+- **Luke 15_10** → **Acts 11_18** [[Acts ch_ 11.md]] (votes_ 9)
+- **Luke 15_10** → **Philemon 1_15** [[Philemon ch_ 1.md]] (votes_ 4)
+- **Luke 15_10** → **Ezekiel 33_11** [[Ezekiel ch_ 33.md]] (votes_ 18)
+- **Luke 15_10** → **Matthew 18_14** [[Matthew ch_ 18.md]] (votes_ 12)
+- **Luke 15_10** → **Ezekiel 18_32** [[Ezekiel ch_ 18.md]] (votes_ 12)
+- **Luke 15_10** → **Acts 5_19** [[Acts ch_ 5.md]] (votes_ 3)
+- **Luke 15_10** → **Matthew 18_10** [[Matthew ch_ 18.md]] (votes_ 5)
+- **Luke 15_10** → **Luke 7_47** [[Luke ch_ 7.md]] (votes_ 9)
+- **Luke 15_10** → **Ezekiel 18_23** [[Ezekiel ch_ 18.md]] (votes_ 15)
+- **Luke 15_10** → **Luke 15_7** [[Luke ch_ 15.md]] (votes_ 26)
+- **Luke 15_10** → **2 Corinthians 7_10** [[2 Corinthians ch_ 7.md]] (votes_ 18)
+- **Luke 15_10** → **Hebrews 1_14** [[Hebrews ch_ 1.md]] (votes_ 10)
+- **Luke 15_12** → **Psalms 17_14** [[Psalms ch_ 17.md]] (votes_ 1)
+- **Luke 15_12** → **Mark 12_44** [[Mark ch_ 12.md]] (votes_ 3)
+- **Luke 15_12** → **Luke 15_30** [[Luke ch_ 15.md]] (votes_ 1)
+- **Luke 15_13** → **Luke 16_19** [[Luke ch_ 16.md]] (votes_ 4)
+- **Luke 15_13** → **Jeremiah 2_5** [[Jeremiah ch_ 2.md]] (votes_ 6)
+- **Luke 15_13** → **Proverbs 29_3** [[Proverbs ch_ 29.md]] (votes_ 6)
+- **Luke 15_13** → **Proverbs 21_17** [[Proverbs ch_ 21.md]] (votes_ 6)
+- **Luke 15_13** → **Micah 6_3** [[Micah ch_ 6.md]] (votes_ 2)
+- **Luke 15_13** → **2 Peter 2_13** [[2 Peter ch_ 2.md]] (votes_ 1)
+- **Luke 15_13** → **Proverbs 6_26** [[Proverbs ch_ 6.md]] (votes_ 2)
+- **Luke 15_13** → **Jeremiah 2_13** [[Jeremiah ch_ 2.md]] (votes_ 2)
+- **Luke 15_13** → **Isaiah 22_13** [[Isaiah ch_ 22.md]] (votes_ 2)
+- **Luke 15_13** → **Ephesians 2_17** [[Ephesians ch_ 2.md]] (votes_ 1)
+- **Luke 15_13** → **Luke 15_30** [[Luke ch_ 15.md]] (votes_ 4)
+- **Luke 15_13** → **Ephesians 2_13** [[Ephesians ch_ 2.md]] (votes_ 1)
+- **Luke 15_13** → **Luke 16_1** [[Luke ch_ 16.md]] (votes_ 4)
+- **Luke 15_13** → **Proverbs 27_8** [[Proverbs ch_ 27.md]] (votes_ 2)
+- **Luke 15_13** → **Isaiah 56_12** [[Isaiah ch_ 56.md]] (votes_ 2)
+- **Luke 15_13** → **Isaiah 1_4** [[Isaiah ch_ 1.md]] (votes_ 2)
+- **Luke 15_13** → **Proverbs 18_9** [[Proverbs ch_ 18.md]] (votes_ 2)
+- **Luke 15_13** → **Proverbs 28_7** [[Proverbs ch_ 28.md]] (votes_ 5)
+- **Luke 15_13** → **Proverbs 21_20** [[Proverbs ch_ 21.md]] (votes_ 2)
+- **Luke 15_13** → **Psalms 73_27** [[Psalms ch_ 73.md]] (votes_ 2)
+- **Luke 15_13** → **Jeremiah 2_31** [[Jeremiah ch_ 2.md]] (votes_ 2)
+- **Luke 15_13** → **Isaiah 30_11** [[Isaiah ch_ 30.md]] (votes_ 2)
+- **Luke 15_14** → **2 Chronicles 33_11** [[2 Chronicles ch_ 33.md]] (votes_ 3)
+- **Luke 15_14** → **Ezekiel 16_27** [[Ezekiel ch_ 16.md]] (votes_ 1)
+- **Luke 15_15** → **Luke 15_13** [[Luke ch_ 15.md]] (votes_ 1)
+- **Luke 15_15** → **Ezekiel 16_63** [[Ezekiel ch_ 16.md]] (votes_ 1)
+- **Luke 15_15** → **Exodus 10_3** [[Exodus ch_ 10.md]] (votes_ 1)
+- **Luke 15_15** → **Titus 3_3** [[Titus ch_ 3.md]] (votes_ 5)
+- **Luke 15_15** → **Ezekiel 16_52** [[Ezekiel ch_ 16.md]] (votes_ 1)
+- **Luke 15_15** → **Isaiah 57_17** [[Isaiah ch_ 57.md]] (votes_ 1)
+- **Luke 15_15** → **2 Chronicles 28_22** [[2 Chronicles ch_ 28.md]] (votes_ 2)
+- **Luke 15_15** → **Jeremiah 5_3** [[Jeremiah ch_ 5.md]] (votes_ 2)
+- **Luke 15_15** → **Romans 6_22** [[Romans ch_ 6.md]] (votes_ 1)
+- **Luke 15_15** → **Isaiah 1_5** [[Isaiah ch_ 1.md]] (votes_ 3)
+- **Luke 15_15** → **Malachi 2_9** [[Malachi ch_ 2.md]] (votes_ 2)
+- **Luke 15_15** → **Nahum 3_6** [[Nahum ch_ 3.md]] (votes_ 1)
+- **Luke 15_16** → **Isaiah 44_20** [[Isaiah ch_ 44.md]] (votes_ 3)
+- **Luke 15_16** → **Psalms 73_22** [[Psalms ch_ 73.md]] (votes_ 2)
+- **Luke 15_16** → **Psalms 142_4** [[Psalms ch_ 142.md]] (votes_ 3)
+- **Luke 15_16** → **Isaiah 57_3** [[Isaiah ch_ 57.md]] (votes_ 2)
+- **Luke 15_16** → **Isaiah 55_2** [[Isaiah ch_ 55.md]] (votes_ 2)
+- **Luke 15_16** → **Lamentations 4_5** [[Lamentations ch_ 4.md]] (votes_ 3)
+- **Luke 15_16** → **Hosea 12_1** [[Hosea ch_ 12.md]] (votes_ 3)
+- **Luke 15_17** → **Lamentations 1_7** [[Lamentations ch_ 1.md]] (votes_ 6)
+- **Luke 15_17** → **Psalms 73_20** [[Psalms ch_ 73.md]] (votes_ 6)
+- **Luke 15_17** → **Acts 2_37** [[Acts ch_ 2.md]] (votes_ 6)
+- **Luke 15_17** → **Ecclesiastes 9_3** [[Ecclesiastes ch_ 9.md]] (votes_ 4)
+- **Luke 15_17** → **Luke 8_35** [[Luke ch_ 8.md]] (votes_ 6)
+- **Luke 15_17** → **Ezekiel 18_28** [[Ezekiel ch_ 18.md]] (votes_ 19)
+- **Luke 15_17** → **Ephesians 5_14** [[Ephesians ch_ 5.md]] (votes_ 10)
+- **Luke 15_17** → **Luke 16_23** [[Luke ch_ 16.md]] (votes_ 4)
+- **Luke 15_17** → **Jeremiah 31_19** [[Jeremiah ch_ 31.md]] (votes_ 7)
+- **Luke 15_18** → **Proverbs 23_13** [[Proverbs ch_ 23.md]] (votes_ 4)
+- **Luke 15_18** → **Isaiah 63_16** [[Isaiah ch_ 63.md]] (votes_ 4)
+- **Luke 15_18** → **Lamentations 3_40** [[Lamentations ch_ 3.md]] (votes_ 16)
+- **Luke 15_18** → **Jeremiah 3_19** [[Jeremiah ch_ 3.md]] (votes_ 6)
+- **Luke 15_18** → **Jeremiah 31_20** [[Jeremiah ch_ 31.md]] (votes_ 4)
+- **Luke 15_18** → **Psalms 25_11** [[Psalms ch_ 25.md]] (votes_ 5)
+- **Luke 15_18** → **Luke 15_21** [[Luke ch_ 15.md]] (votes_ 12)
+- **Luke 15_18** → **Lamentations 3_29** [[Lamentations ch_ 3.md]] (votes_ 2)
+- **Luke 15_18** → **Matthew 6_9** [[Matthew ch_ 6.md]] (votes_ 4)
+- **Luke 15_18** → **Jonah 2_4** [[Jonah ch_ 2.md]] (votes_ 2)
+- **Luke 15_18** → **Matthew 7_11** [[Matthew ch_ 7.md]] (votes_ 3)
+- **Luke 15_18** → **2 Chronicles 33_19** [[2 Chronicles ch_ 33.md]] (votes_ 3)
+- **Luke 15_18** → **Luke 18_13** [[Luke ch_ 18.md]] (votes_ 10)
+- **Luke 15_18** → **Matthew 3_6** [[Matthew ch_ 3.md]] (votes_ 4)
+- **Luke 15_18** → **Luke 11_2** [[Luke ch_ 11.md]] (votes_ 2)
+- **Luke 15_18** → **Daniel 4_26** [[Daniel ch_ 4.md]] (votes_ 2)
+- **Luke 15_18** → **Matthew 6_14** [[Matthew ch_ 6.md]] (votes_ 8)
+- **Luke 15_18** → **Jonah 3_9** [[Jonah ch_ 3.md]] (votes_ 3)
+- **Luke 15_19** → **Genesis 32_10** [[Genesis ch_ 32.md]] (votes_ 4)
+- **Luke 15_19** → **Psalms 84_10** [[Psalms ch_ 84.md]] (votes_ 5)
+- **Luke 15_19** → **1 Peter 5_6** [[1 Peter ch_ 5.md]] (votes_ 4)
+- **Luke 15_19** → **1 Corinthians 15_9** [[1 Corinthians ch_ 15.md]] (votes_ 3)
+- **Luke 15_19** → **Luke 5_8** [[Luke ch_ 5.md]] (votes_ 5)
+- **Luke 15_19** → **Job 42_6** [[Job ch_ 42.md]] (votes_ 8)
+- **Luke 15_20** → **Ephesians 2_17** [[Ephesians ch_ 2.md]] (votes_ 7)
+- **Luke 15_20** → **Ephesians 2_13** [[Ephesians ch_ 2.md]] (votes_ 11)
+- **Luke 15_20** → **Genesis 46_29** [[Genesis ch_ 46.md]] (votes_ 8)
+- **Luke 15_20** → **Hosea 11_8** [[Hosea ch_ 11.md]] (votes_ 5)
+- **Luke 15_20** → **Genesis 33_4** [[Genesis ch_ 33.md]] (votes_ 9)
+- **Luke 15_20** → **Genesis 45_14** [[Genesis ch_ 45.md]] (votes_ 6)
+- **Luke 15_20** → **Isaiah 57_18** [[Isaiah ch_ 57.md]] (votes_ 7)
+- **Luke 15_20** → **Acts 20_37** [[Acts ch_ 20.md]] (votes_ 5)
+- **Luke 15_20** → **Acts 2_39** [[Acts ch_ 2.md]] (votes_ 5)
+- **Luke 15_20** → **Jeremiah 31_20** [[Jeremiah ch_ 31.md]] (votes_ 7)
+- **Luke 15_20** → **Psalms 86_15** [[Psalms ch_ 86.md]] (votes_ 12)
+- **Luke 15_20** → **Psalms 86_5** [[Psalms ch_ 86.md]] (votes_ 16)
+- **Luke 15_20** → **Isaiah 49_15** [[Isaiah ch_ 49.md]] (votes_ 9)
+- **Luke 15_21** → **Ezekiel 16_63** [[Ezekiel ch_ 16.md]] (votes_ 2)
+- **Luke 15_21** → **Psalms 143_2** [[Psalms ch_ 143.md]] (votes_ 3)
+- **Luke 15_21** → **Jeremiah 3_13** [[Jeremiah ch_ 3.md]] (votes_ 7)
+- **Luke 15_21** → **Psalms 51_4** [[Psalms ch_ 51.md]] (votes_ 11)
+- **Luke 15_21** → **Romans 2_4** [[Romans ch_ 2.md]] (votes_ 4)
+- **Luke 15_21** → **1 Corinthians 8_12** [[1 Corinthians ch_ 8.md]] (votes_ 6)
+- **Luke 15_22** → **Esther 8_2** [[Esther ch_ 8.md]] (votes_ 10)
+- **Luke 15_22** → **Revelation 2_17** [[Revelation ch_ 2.md]] (votes_ 4)
+- **Luke 15_22** → **Psalms 18_33** [[Psalms ch_ 18.md]] (votes_ 4)
+- **Luke 15_22** → **Romans 3_22** [[Romans ch_ 3.md]] (votes_ 3)
+- **Luke 15_22** → **Galatians 3_27** [[Galatians ch_ 3.md]] (votes_ 4)
+- **Luke 15_22** → **Revelation 7_9** [[Revelation ch_ 7.md]] (votes_ 7)
+- **Luke 15_22** → **Revelation 3_18** [[Revelation ch_ 3.md]] (votes_ 3)
+- **Luke 15_22** → **Esther 3_10** [[Esther ch_ 3.md]] (votes_ 8)
+- **Luke 15_22** → **Revelation 6_11** [[Revelation ch_ 6.md]] (votes_ 9)
+- **Luke 15_22** → **Psalms 132_16** [[Psalms ch_ 132.md]] (votes_ 3)
+- **Luke 15_22** → **Ephesians 6_15** [[Ephesians ch_ 6.md]] (votes_ 3)
+- **Luke 15_22** → **Psalms 132_9** [[Psalms ch_ 132.md]] (votes_ 4)
+- **Luke 15_22** → **Deuteronomy 33_25** [[Deuteronomy ch_ 33.md]] (votes_ 4)
+- **Luke 15_22** → **Genesis 41_42** [[Genesis ch_ 41.md]] (votes_ 9)
+- **Luke 15_22** → **Song of Solomon 7_1** [[Song of Solomon ch_ 7.md]] (votes_ 4)
+- **Luke 15_22** → **Romans 13_14** [[Romans ch_ 13.md]] (votes_ 4)
+- **Luke 15_22** → **Isaiah 61_10** [[Isaiah ch_ 61.md]] (votes_ 8)
+- **Luke 15_22** → **Revelation 19_8** [[Revelation ch_ 19.md]] (votes_ 7)
+- **Luke 15_22** → **Romans 8_15** [[Romans ch_ 8.md]] (votes_ 5)
+- **Luke 15_22** → **Psalms 45_13** [[Psalms ch_ 45.md]] (votes_ 4)
+- **Luke 15_23** → **Genesis 18_7** [[Genesis ch_ 18.md]] (votes_ 2)
+- **Luke 15_23** → **Proverbs 9_2** [[Proverbs ch_ 9.md]] (votes_ 2)
+- **Luke 15_23** → **Psalms 63_5** [[Psalms ch_ 63.md]] (votes_ 4)
+- **Luke 15_23** → **Isaiah 25_6** [[Isaiah ch_ 25.md]] (votes_ 5)
+- **Luke 15_24** → **John 5_21** [[John ch_ 5.md]] (votes_ 6)
+- **Luke 15_24** → **Ephesians 2_1** [[Ephesians ch_ 2.md]] (votes_ 17)
+- **Luke 15_24** → **Ephesians 5_14** [[Ephesians ch_ 5.md]] (votes_ 8)
+- **Luke 15_24** → **Romans 11_15** [[Romans ch_ 11.md]] (votes_ 6)
+- **Luke 15_24** → **Ephesians 2_5** [[Ephesians ch_ 2.md]] (votes_ 26)
+- **Luke 15_24** → **Isaiah 66_11** [[Isaiah ch_ 66.md]] (votes_ 2)
+- **Luke 15_24** → **Romans 6_13** [[Romans ch_ 6.md]] (votes_ 6)
+- **Luke 15_24** → **Isaiah 35_10** [[Isaiah ch_ 35.md]] (votes_ 10)
+- **Luke 15_24** → **Revelation 3_1** [[Revelation ch_ 3.md]] (votes_ 5)
+- **Luke 15_24** → **Romans 6_11** [[Romans ch_ 6.md]] (votes_ 12)
+- **Luke 15_24** → **1 Corinthians 12_26** [[1 Corinthians ch_ 12.md]] (votes_ 7)
+- **Luke 15_24** → **Luke 15_4** [[Luke ch_ 15.md]] (votes_ 17)
+- **Luke 15_24** → **Genesis 45_28** [[Genesis ch_ 45.md]] (votes_ 4)
+- **Luke 15_24** → **Luke 19_10** [[Luke ch_ 19.md]] (votes_ 20)
+- **Luke 15_24** → **Jude 1_12** [[Jude ch_ 1.md]] (votes_ 4)
+- **Luke 15_24** → **Luke 15_32** [[Luke ch_ 15.md]] (votes_ 13)
+- **Luke 15_24** → **1 Timothy 5_6** [[1 Timothy ch_ 5.md]] (votes_ 5)
+- **Luke 15_24** → **Romans 12_15** [[Romans ch_ 12.md]] (votes_ 9)
+- **Luke 15_24** → **Luke 10_19** [[Luke ch_ 10.md]] (votes_ 4)
+- **Luke 15_24** → **Romans 8_2** [[Romans ch_ 8.md]] (votes_ 10)
+- **Luke 15_24** → **John 11_25** [[John ch_ 11.md]] (votes_ 9)
+- **Luke 15_24** → **Ezekiel 34_4** [[Ezekiel ch_ 34.md]] (votes_ 6)
+- **Luke 15_24** → **Colossians 2_13** [[Colossians ch_ 2.md]] (votes_ 18)
+- **Luke 15_24** → **Mark 8_22** [[Mark ch_ 8.md]] (votes_ 6)
+- **Luke 15_24** → **Ezekiel 34_16** [[Ezekiel ch_ 34.md]] (votes_ 23)
+- **Luke 15_25** → **Jeremiah 31_4** [[Jeremiah ch_ 31.md]] (votes_ 3)
+- **Luke 15_25** → **Exodus 15_20** [[Exodus ch_ 15.md]] (votes_ 2)
+- **Luke 15_25** → **Ecclesiastes 3_4** [[Ecclesiastes ch_ 3.md]] (votes_ 2)
+- **Luke 15_25** → **Psalms 149_3** [[Psalms ch_ 149.md]] (votes_ 2)
+- **Luke 15_25** → **Psalms 126_1** [[Psalms ch_ 126.md]] (votes_ 2)
+- **Luke 15_25** → **Psalms 30_11** [[Psalms ch_ 30.md]] (votes_ 1)
+- **Luke 15_25** → **2 Samuel 6_14** [[2 Samuel ch_ 6.md]] (votes_ 2)
+- **Luke 15_25** → **Luke 7_32** [[Luke ch_ 7.md]] (votes_ 2)
+- **Luke 15_25** → **Psalms 150_4** [[Psalms ch_ 150.md]] (votes_ 3)
+- **Luke 15_27** → **Philemon 1_16** [[Philemon ch_ 1.md]] (votes_ 2)
+- **Luke 15_27** → **Acts 22_13** [[Acts ch_ 22.md]] (votes_ 2)
+- **Luke 15_27** → **Acts 9_17** [[Acts ch_ 9.md]] (votes_ 2)
+- **Luke 15_27** → **Luke 15_30** [[Luke ch_ 15.md]] (votes_ 2)
+- **Luke 15_28** → **Isaiah 65_5** [[Isaiah ch_ 65.md]] (votes_ 3)
+- **Luke 15_28** → **Acts 13_50** [[Acts ch_ 13.md]] (votes_ 1)
+- **Luke 15_28** → **Luke 24_47** [[Luke ch_ 24.md]] (votes_ 2)
+- **Luke 15_28** → **Luke 13_34** [[Luke ch_ 13.md]] (votes_ 2)
+- **Luke 15_28** → **2 Corinthians 5_20** [[2 Corinthians ch_ 5.md]] (votes_ 1)
+- **Luke 15_28** → **Jonah 4_9** [[Jonah ch_ 4.md]] (votes_ 5)
+- **Luke 15_28** → **Luke 7_39** [[Luke ch_ 7.md]] (votes_ 3)
+- **Luke 15_28** → **Acts 14_19** [[Acts ch_ 14.md]] (votes_ 1)
+- **Luke 15_28** → **1 Thessalonians 2_16** [[1 Thessalonians ch_ 2.md]] (votes_ 1)
+- **Luke 15_28** → **1 Samuel 17_28** [[1 Samuel ch_ 17.md]] (votes_ 2)
+- **Luke 15_28** → **1 Samuel 18_8** [[1 Samuel ch_ 18.md]] (votes_ 5)
+- **Luke 15_28** → **Acts 14_2** [[Acts ch_ 14.md]] (votes_ 2)
+- **Luke 15_28** → **Matthew 20_11** [[Matthew ch_ 20.md]] (votes_ 2)
+- **Luke 15_28** → **Isaiah 66_5** [[Isaiah ch_ 66.md]] (votes_ 3)
+- **Luke 15_28** → **Luke 15_2** [[Luke ch_ 15.md]] (votes_ 3)
+- **Luke 15_28** → **Luke 5_30** [[Luke ch_ 5.md]] (votes_ 2)
+- **Luke 15_28** → **Romans 10_19** [[Romans ch_ 10.md]] (votes_ 1)
+- **Luke 15_28** → **Acts 13_45** [[Acts ch_ 13.md]] (votes_ 2)
+- **Luke 15_29** → **Revelation 2_17** [[Revelation ch_ 2.md]] (votes_ 2)
+- **Luke 15_29** → **Revelation 3_17** [[Revelation ch_ 3.md]] (votes_ 2)
+- **Luke 15_29** → **Malachi 3_14** [[Malachi ch_ 3.md]] (votes_ 2)
+- **Luke 15_29** → **Romans 10_3** [[Romans ch_ 10.md]] (votes_ 2)
+- **Luke 15_29** → **Luke 19_21** [[Luke ch_ 19.md]] (votes_ 2)
+- **Luke 15_29** → **Isaiah 65_5** [[Isaiah ch_ 65.md]] (votes_ 2)
+- **Luke 15_29** → **Romans 7_9** [[Romans ch_ 7.md]] (votes_ 2)
+- **Luke 15_29** → **Luke 18_9** [[Luke ch_ 18.md]] (votes_ 2)
+- **Luke 15_29** → **Luke 17_10** [[Luke ch_ 17.md]] (votes_ 2)
+- **Luke 15_29** → **Luke 15_7** [[Luke ch_ 15.md]] (votes_ 2)
+- **Luke 15_29** → **Romans 3_20** [[Romans ch_ 3.md]] (votes_ 1)
+- **Luke 15_29** → **Zechariah 7_3** [[Zechariah ch_ 7.md]] (votes_ 3)
+- **Luke 15_29** → **Romans 3_27** [[Romans ch_ 3.md]] (votes_ 1)
+- **Luke 15_29** → **Matthew 20_12** [[Matthew ch_ 20.md]] (votes_ 2)
+- **Luke 15_30** → **Exodus 32_7** [[Exodus ch_ 32.md]] (votes_ 2)
+- **Luke 15_30** → **Proverbs 29_3** [[Proverbs ch_ 29.md]] (votes_ 4)
+- **Luke 15_30** → **Luke 18_11** [[Luke ch_ 18.md]] (votes_ 3)
+- **Luke 15_30** → **Luke 15_32** [[Luke ch_ 15.md]] (votes_ 3)
+- **Luke 15_30** → **Exodus 32_11** [[Exodus ch_ 32.md]] (votes_ 2)
+- **Luke 15_31** → **Romans 11_1** [[Romans ch_ 11.md]] (votes_ 6)
+- **Luke 15_31** → **Romans 9_4** [[Romans ch_ 9.md]] (votes_ 8)
+- **Luke 15_31** → **Romans 11_35** [[Romans ch_ 11.md]] (votes_ 2)
+- **Luke 15_32** → **Romans 3_19** [[Romans ch_ 3.md]] (votes_ 3)
+- **Luke 15_32** → **Hosea 14_9** [[Hosea ch_ 14.md]] (votes_ 4)
+- **Luke 15_32** → **Psalms 51_8** [[Psalms ch_ 51.md]] (votes_ 8)
+- **Luke 15_32** → **Romans 3_4** [[Romans ch_ 3.md]] (votes_ 7)
+- **Luke 15_32** → **Luke 7_34** [[Luke ch_ 7.md]] (votes_ 3)
+- **Luke 15_32** → **Luke 15_24** [[Luke ch_ 15.md]] (votes_ 15)
+- **Luke 15_32** → **Isaiah 35_10** [[Isaiah ch_ 35.md]] (votes_ 12)

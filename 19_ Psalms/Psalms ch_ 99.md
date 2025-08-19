@@ -1,0 +1,127 @@
+# Psalms 99
+
+**1** ¶ The LORD reigneth; let the people tremble_ he sitteth [between] the cherubims; let the earth be moved.
+
+**2** The LORD [is] great in Zion; and he [is] high above all the people.
+
+**3** Let them praise thy great and terrible name; [for] it [is] holy.
+
+**4** The king's strength also loveth judgment; thou dost establish equity, thou executest judgment and righteousness in Jacob.
+
+**5** Exalt ye the LORD our God, and worship at his footstool; [for] he [is] holy.
+
+**6** ¶ Moses and Aaron among his priests, and Samuel among them that call upon his name; they called upon the LORD, and he answered them.
+
+**7** He spake unto them in the cloudy pillar_ they kept his testimonies, and the ordinance [that] he gave them.
+
+**8** Thou answeredst them, O LORD our God_ thou wast a God that forgavest them, though thou tookest vengeance of their inventions.
+
+**9** Exalt the LORD our God, and worship at his holy hill; for the LORD our God [is] holy.
+
+---
+
+## Cross-References
+
+- **Psalms 99_1** → **Jeremiah 4_24** [[Jeremiah ch_ 4.md]] (votes_ 4)
+- **Psalms 99_1** → **Jeremiah 50_46** [[Jeremiah ch_ 50.md]] (votes_ 4)
+- **Psalms 99_1** → **Luke 19_14** [[Luke ch_ 19.md]] (votes_ 4)
+- **Psalms 99_1** → **Psalms 97_1** [[Psalms ch_ 97.md]] (votes_ 8)
+- **Psalms 99_1** → **Psalms 82_5** [[Psalms ch_ 82.md]] (votes_ 3)
+- **Psalms 99_1** → **Psalms 97_4** [[Psalms ch_ 97.md]] (votes_ 6)
+- **Psalms 99_1** → **Jeremiah 49_21** [[Jeremiah ch_ 49.md]] (votes_ 4)
+- **Psalms 99_1** → **Revelation 6_14** [[Revelation ch_ 6.md]] (votes_ 4)
+- **Psalms 99_1** → **Luke 19_12** [[Luke ch_ 19.md]] (votes_ 4)
+- **Psalms 99_1** → **Psalms 2_6** [[Psalms ch_ 2.md]] (votes_ 4)
+- **Psalms 99_1** → **Revelation 20_11** [[Revelation ch_ 20.md]] (votes_ 5)
+- **Psalms 99_1** → **Jeremiah 5_22** [[Jeremiah ch_ 5.md]] (votes_ 4)
+- **Psalms 99_1** → **Isaiah 19_14** [[Isaiah ch_ 19.md]] (votes_ 4)
+- **Psalms 99_1** → **Exodus 25_22** [[Exodus ch_ 25.md]] (votes_ 7)
+- **Psalms 99_1** → **Revelation 11_17** [[Revelation ch_ 11.md]] (votes_ 4)
+- **Psalms 99_1** → **Philippians 2_12** [[Philippians ch_ 2.md]] (votes_ 4)
+- **Psalms 99_1** → **Psalms 93_1** [[Psalms ch_ 93.md]] (votes_ 6)
+- **Psalms 99_1** → **Psalms 18_10** [[Psalms ch_ 18.md]] (votes_ 4)
+- **Psalms 99_1** → **Psalms 96_10** [[Psalms ch_ 96.md]] (votes_ 4)
+- **Psalms 99_1** → **Psalms 80_1** [[Psalms ch_ 80.md]] (votes_ 6)
+- **Psalms 99_1** → **Luke 19_27** [[Luke ch_ 19.md]] (votes_ 4)
+- **Psalms 99_2** → **Psalms 113_4** [[Psalms ch_ 113.md]] (votes_ 2)
+- **Psalms 99_2** → **Psalms 66_7** [[Psalms ch_ 66.md]] (votes_ 2)
+- **Psalms 99_2** → **Psalms 50_2** [[Psalms ch_ 50.md]] (votes_ 2)
+- **Psalms 99_2** → **Psalms 97_9** [[Psalms ch_ 97.md]] (votes_ 9)
+- **Psalms 99_2** → **Isaiah 14_32** [[Isaiah ch_ 14.md]] (votes_ 4)
+- **Psalms 99_2** → **Isaiah 12_6** [[Isaiah ch_ 12.md]] (votes_ 3)
+- **Psalms 99_3** → **Psalms 76_1** [[Psalms ch_ 76.md]] (votes_ 2)
+- **Psalms 99_3** → **Deuteronomy 28_58** [[Deuteronomy ch_ 28.md]] (votes_ 6)
+- **Psalms 99_3** → **Psalms 145_17** [[Psalms ch_ 145.md]] (votes_ 3)
+- **Psalms 99_3** → **Psalms 66_3** [[Psalms ch_ 66.md]] (votes_ 3)
+- **Psalms 99_3** → **Nehemiah 9_32** [[Nehemiah ch_ 9.md]] (votes_ 1)
+- **Psalms 99_3** → **Nehemiah 1_5** [[Nehemiah ch_ 1.md]] (votes_ 3)
+- **Psalms 99_3** → **Revelation 4_8** [[Revelation ch_ 4.md]] (votes_ 3)
+- **Psalms 99_3** → **Psalms 76_12** [[Psalms ch_ 76.md]] (votes_ 1)
+- **Psalms 99_3** → **Deuteronomy 7_21** [[Deuteronomy ch_ 7.md]] (votes_ 3)
+- **Psalms 99_3** → **Nehemiah 4_14** [[Nehemiah ch_ 4.md]] (votes_ 3)
+- **Psalms 99_3** → **Isaiah 6_3** [[Isaiah ch_ 6.md]] (votes_ 9)
+- **Psalms 99_3** → **1 Samuel 2_2** [[1 Samuel ch_ 2.md]] (votes_ 2)
+- **Psalms 99_3** → **Jeremiah 20_11** [[Jeremiah ch_ 20.md]] (votes_ 1)
+- **Psalms 99_3** → **Psalms 111_9** [[Psalms ch_ 111.md]] (votes_ 4)
+- **Psalms 99_3** → **John 17_11** [[John ch_ 17.md]] (votes_ 3)
+- **Psalms 99_3** → **Joshua 24_19** [[Joshua ch_ 24.md]] (votes_ 2)
+- **Psalms 99_4** → **Deuteronomy 10_18** [[Deuteronomy ch_ 10.md]] (votes_ 2)
+- **Psalms 99_4** → **Revelation 19_16** [[Revelation ch_ 19.md]] (votes_ 3)
+- **Psalms 99_4** → **Psalms 11_7** [[Psalms ch_ 11.md]] (votes_ 6)
+- **Psalms 99_4** → **Job 37_23** [[Job ch_ 37.md]] (votes_ 2)
+- **Psalms 99_4** → **Revelation 19_11** [[Revelation ch_ 19.md]] (votes_ 1)
+- **Psalms 99_4** → **Isaiah 42_4** [[Isaiah ch_ 42.md]] (votes_ 1)
+- **Psalms 99_4** → **Isaiah 61_11** [[Isaiah ch_ 61.md]] (votes_ 1)
+- **Psalms 99_4** → **Psalms 98_9** [[Psalms ch_ 98.md]] (votes_ 1)
+- **Psalms 99_4** → **Isaiah 9_7** [[Isaiah ch_ 9.md]] (votes_ 2)
+- **Psalms 99_4** → **Jeremiah 23_5** [[Jeremiah ch_ 23.md]] (votes_ 3)
+- **Psalms 99_4** → **Jude 1_15** [[Jude ch_ 1.md]] (votes_ 1)
+- **Psalms 99_5** → **Psalms 34_3** [[Psalms ch_ 34.md]] (votes_ 5)
+- **Psalms 99_5** → **Psalms 99_9** [[Psalms ch_ 99.md]] (votes_ 3)
+- **Psalms 99_5** → **Isaiah 12_4** [[Isaiah ch_ 12.md]] (votes_ 4)
+- **Psalms 99_5** → **Leviticus 19_2** [[Leviticus ch_ 19.md]] (votes_ 3)
+- **Psalms 99_5** → **Psalms 21_13** [[Psalms ch_ 21.md]] (votes_ 3)
+- **Psalms 99_5** → **Psalms 99_3** [[Psalms ch_ 99.md]] (votes_ 4)
+- **Psalms 99_5** → **Psalms 107_32** [[Psalms ch_ 107.md]] (votes_ 3)
+- **Psalms 99_5** → **Psalms 118_28** [[Psalms ch_ 118.md]] (votes_ 3)
+- **Psalms 99_5** → **Hosea 11_7** [[Hosea ch_ 11.md]] (votes_ 1)
+- **Psalms 99_5** → **Exodus 15_2** [[Exodus ch_ 15.md]] (votes_ 5)
+- **Psalms 99_5** → **Isaiah 66_1** [[Isaiah ch_ 66.md]] (votes_ 6)
+- **Psalms 99_5** → **Isaiah 25_1** [[Isaiah ch_ 25.md]] (votes_ 4)
+- **Psalms 99_5** → **1 Chronicles 28_2** [[1 Chronicles ch_ 28.md]] (votes_ 2)
+- **Psalms 99_5** → **Psalms 132_7** [[Psalms ch_ 132.md]] (votes_ 10)
+- **Psalms 99_5** → **Psalms 108_5** [[Psalms ch_ 108.md]] (votes_ 6)
+- **Psalms 99_6** → **Jeremiah 15_1** [[Jeremiah ch_ 15.md]] (votes_ 9)
+- **Psalms 99_6** → **Exodus 15_25** [[Exodus ch_ 15.md]] (votes_ 3)
+- **Psalms 99_6** → **Exodus 14_15** [[Exodus ch_ 14.md]] (votes_ 3)
+- **Psalms 99_6** → **Exodus 32_30** [[Exodus ch_ 32.md]] (votes_ 2)
+- **Psalms 99_7** → **Hebrews 3_2** [[Hebrews ch_ 3.md]] (votes_ 3)
+- **Psalms 99_7** → **Numbers 12_5** [[Numbers ch_ 12.md]] (votes_ 6)
+- **Psalms 99_7** → **Deuteronomy 33_9** [[Deuteronomy ch_ 33.md]] (votes_ 2)
+- **Psalms 99_7** → **Deuteronomy 4_5** [[Deuteronomy ch_ 4.md]] (votes_ 4)
+- **Psalms 99_7** → **Exodus 33_9** [[Exodus ch_ 33.md]] (votes_ 7)
+- **Psalms 99_7** → **Exodus 19_9** [[Exodus ch_ 19.md]] (votes_ 3)
+- **Psalms 99_7** → **Psalms 105_28** [[Psalms ch_ 105.md]] (votes_ 2)
+- **Psalms 99_7** → **Numbers 16_15** [[Numbers ch_ 16.md]] (votes_ 1)
+- **Psalms 99_7** → **Proverbs 28_9** [[Proverbs ch_ 28.md]] (votes_ 2)
+- **Psalms 99_7** → **Exodus 40_16** [[Exodus ch_ 40.md]] (votes_ 2)
+- **Psalms 99_8** → **Numbers 20_12** [[Numbers ch_ 20.md]] (votes_ 5)
+- **Psalms 99_8** → **Zephaniah 3_7** [[Zephaniah ch_ 3.md]] (votes_ 0)
+- **Psalms 99_8** → **Deuteronomy 3_26** [[Deuteronomy ch_ 3.md]] (votes_ 0)
+- **Psalms 99_8** → **Exodus 32_2** [[Exodus ch_ 32.md]] (votes_ 0)
+- **Psalms 99_8** → **Jeremiah 46_28** [[Jeremiah ch_ 46.md]] (votes_ 3)
+- **Psalms 99_8** → **Ecclesiastes 7_29** [[Ecclesiastes ch_ 7.md]] (votes_ 2)
+- **Psalms 99_8** → **Romans 1_21** [[Romans ch_ 1.md]] (votes_ 0)
+- **Psalms 99_8** → **Numbers 20_24** [[Numbers ch_ 20.md]] (votes_ 0)
+- **Psalms 99_8** → **Psalms 89_33** [[Psalms ch_ 89.md]] (votes_ 4)
+- **Psalms 99_9** → **Isaiah 5_16** [[Isaiah ch_ 5.md]] (votes_ 4)
+- **Psalms 99_9** → **Revelation 3_7** [[Revelation ch_ 3.md]] (votes_ 2)
+- **Psalms 99_9** → **Psalms 99_3** [[Psalms ch_ 99.md]] (votes_ 2)
+- **Psalms 99_9** → **Psalms 99_5** [[Psalms ch_ 99.md]] (votes_ 2)
+- **Psalms 99_9** → **Luke 1_49** [[Luke ch_ 1.md]] (votes_ 7)
+- **Psalms 99_9** → **Revelation 4_8** [[Revelation ch_ 4.md]] (votes_ 4)
+- **Psalms 99_9** → **Isaiah 57_15** [[Isaiah ch_ 57.md]] (votes_ 5)
+- **Psalms 99_9** → **Habakkuk 1_12** [[Habakkuk ch_ 1.md]] (votes_ 2)
+- **Psalms 99_9** → **1 Samuel 2_2** [[1 Samuel ch_ 2.md]] (votes_ 3)
+- **Psalms 99_9** → **Psalms 2_6** [[Psalms ch_ 2.md]] (votes_ 3)
+- **Psalms 99_9** → **Isaiah 6_3** [[Isaiah ch_ 6.md]] (votes_ 3)

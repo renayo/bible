@@ -1,0 +1,247 @@
+# Joel 3
+
+**1** ¶ For, behold, in those days, and in that time, when I shall bring again the captivity of Judah and Jerusalem,
+
+**2** I will also gather all nations, and will bring them down into the valley of Jehoshaphat, and will plead with them there for my people and [for] my heritage Israel, whom they have scattered among the nations, and parted my land.
+
+**3** And they have cast lots for my people; and have given a boy for an harlot, and sold a girl for wine, that they might drink.
+
+**4** Yea, and what have ye to do with me, O Tyre, and Zidon, and all the coasts of Palestine? will ye render me a recompence? and if ye recompense me, swiftly [and] speedily will I return your recompence upon your own head;
+
+**5** Because ye have taken my silver and my gold, and have carried into your temples my goodly pleasant things_
+
+**6** The children also of Judah and the children of Jerusalem have ye sold unto the Grecians, that ye might remove them far from their border.
+
+**7** Behold, I will raise them out of the place whither ye have sold them, and will return your recompence upon your own head_
+
+**8** And I will sell your sons and your daughters into the hand of the children of Judah, and they shall sell them to the Sabeans, to a people far off_ for the LORD hath spoken [it].
+
+**9** ¶ Proclaim ye this among the Gentiles; Prepare war, wake up the mighty men, let all the men of war draw near; let them come up_
+
+**10** Beat your plowshares into swords, and your pruninghooks into spears_ let the weak say, I [am] strong.
+
+**11** Assemble yourselves, and come, all ye heathen, and gather yourselves together round about_ thither cause thy mighty ones to come down, O LORD.
+
+**12** Let the heathen be wakened, and come up to the valley of Jehoshaphat_ for there will I sit to judge all the heathen round about.
+
+**13** Put ye in the sickle, for the harvest is ripe_ come, get you down; for the press is full, the fats overflow; for their wickedness [is] great.
+
+**14** Multitudes, multitudes in the valley of decision_ for the day of the LORD [is] near in the valley of decision.
+
+**15** The sun and the moon shall be darkened, and the stars shall withdraw their shining.
+
+**16** The LORD also shall roar out of Zion, and utter his voice from Jerusalem; and the heavens and the earth shall shake_ but the LORD [will be] the hope of his people, and the strength of the children of Israel.
+
+**17** So shall ye know that I [am] the LORD your God dwelling in Zion, my holy mountain_ then shall Jerusalem be holy, and there shall no strangers pass through her any more.
+
+**18** ¶ And it shall come to pass in that day, [that] the mountains shall drop down new wine, and the hills shall flow with milk, and all the rivers of Judah shall flow with waters, and a fountain shall come forth of the house of the LORD, and shall water the valley of Shittim.
+
+**19** Egypt shall be a desolation, and Edom shall be a desolate wilderness, for the violence [against] the children of Judah, because they have shed innocent blood in their land.
+
+**20** But Judah shall dwell for ever, and Jerusalem from generation to generation.
+
+**21** For I will cleanse their blood [that] I have not cleansed_ for the LORD dwelleth in Zion.
+
+---
+
+## Cross-References
+
+- **Joel 3_1** → **Jeremiah 30_3** [[Jeremiah ch_ 30.md]] (votes_ 26)
+- **Joel 3_1** → **Psalms 85_1** [[Psalms ch_ 85.md]] (votes_ 17)
+- **Joel 3_1** → **Jeremiah 16_15** [[Jeremiah ch_ 16.md]] (votes_ 12)
+- **Joel 3_1** → **Jeremiah 30_18** [[Jeremiah ch_ 30.md]] (votes_ 14)
+- **Joel 3_1** → **Daniel 12_1** [[Daniel ch_ 12.md]] (votes_ 8)
+- **Joel 3_1** → **Ezekiel 16_53** [[Ezekiel ch_ 16.md]] (votes_ 11)
+- **Joel 3_1** → **Deuteronomy 30_3** [[Deuteronomy ch_ 30.md]] (votes_ 16)
+- **Joel 3_1** → **Jeremiah 29_14** [[Jeremiah ch_ 29.md]] (votes_ 17)
+- **Joel 3_1** → **Amos 9_14** [[Amos ch_ 9.md]] (votes_ 20)
+- **Joel 3_1** → **Psalms 14_7** [[Psalms ch_ 14.md]] (votes_ 12)
+- **Joel 3_1** → **Ezekiel 39_25** [[Ezekiel ch_ 39.md]] (votes_ 21)
+- **Joel 3_1** → **Joel 2_29** [[Joel ch_ 2.md]] (votes_ 9)
+- **Joel 3_2** → **Ezekiel 25_8** [[Ezekiel ch_ 25.md]] (votes_ 2)
+- **Joel 3_2** → **Ezekiel 39_11** [[Ezekiel ch_ 39.md]] (votes_ 3)
+- **Joel 3_2** → **Amos 1_11** [[Amos ch_ 1.md]] (votes_ 2)
+- **Joel 3_2** → **Joel 3_12** [[Joel ch_ 3.md]] (votes_ 3)
+- **Joel 3_2** → **Zephaniah 3_8** [[Zephaniah ch_ 3.md]] (votes_ 6)
+- **Joel 3_2** → **Isaiah 66_16** [[Isaiah ch_ 66.md]] (votes_ 6)
+- **Joel 3_2** → **Ezekiel 38_22** [[Ezekiel ch_ 38.md]] (votes_ 5)
+- **Joel 3_2** → **Revelation 16_16** [[Revelation ch_ 16.md]] (votes_ 3)
+- **Joel 3_2** → **Jeremiah 25_31** [[Jeremiah ch_ 25.md]] (votes_ 3)
+- **Joel 3_2** → **2 Chronicles 20_26** [[2 Chronicles ch_ 20.md]] (votes_ 2)
+- **Joel 3_2** → **Revelation 16_14** [[Revelation ch_ 16.md]] (votes_ 2)
+- **Joel 3_2** → **Ezekiel 36_5** [[Ezekiel ch_ 36.md]] (votes_ 2)
+- **Joel 3_2** → **Jeremiah 49_1** [[Jeremiah ch_ 49.md]] (votes_ 2)
+- **Joel 3_2** → **Revelation 16_6** [[Revelation ch_ 16.md]] (votes_ 2)
+- **Joel 3_2** → **Ezekiel 35_10** [[Ezekiel ch_ 35.md]] (votes_ 3)
+- **Joel 3_2** → **Revelation 20_8** [[Revelation ch_ 20.md]] (votes_ 2)
+- **Joel 3_2** → **Revelation 11_18** [[Revelation ch_ 11.md]] (votes_ 1)
+- **Joel 3_2** → **Jeremiah 12_14** [[Jeremiah ch_ 12.md]] (votes_ 2)
+- **Joel 3_3** → **Nahum 3_10** [[Nahum ch_ 3.md]] (votes_ 6)
+- **Joel 3_3** → **Revelation 18_13** [[Revelation ch_ 18.md]] (votes_ 4)
+- **Joel 3_3** → **Obadiah 1_11** [[Obadiah ch_ 1.md]] (votes_ 5)
+- **Joel 3_3** → **Amos 2_6** [[Amos ch_ 2.md]] (votes_ 5)
+- **Joel 3_4** → **Jeremiah 51_6** [[Jeremiah ch_ 51.md]] (votes_ 2)
+- **Joel 3_4** → **2 Chronicles 21_16** [[2 Chronicles ch_ 21.md]] (votes_ 2)
+- **Joel 3_4** → **Isaiah 59_18** [[Isaiah ch_ 59.md]] (votes_ 4)
+- **Joel 3_4** → **Isaiah 34_8** [[Isaiah ch_ 34.md]] (votes_ 4)
+- **Joel 3_4** → **Deuteronomy 32_35** [[Deuteronomy ch_ 32.md]] (votes_ 2)
+- **Joel 3_4** → **Luke 18_7** [[Luke ch_ 18.md]] (votes_ 2)
+- **Joel 3_4** → **Matthew 11_21** [[Matthew ch_ 11.md]] (votes_ 2)
+- **Joel 3_4** → **Jeremiah 47_4** [[Jeremiah ch_ 47.md]] (votes_ 5)
+- **Joel 3_4** → **Acts 9_4** [[Acts ch_ 9.md]] (votes_ 2)
+- **Joel 3_4** → **Judges 11_12** [[Judges ch_ 11.md]] (votes_ 2)
+- **Joel 3_4** → **2 Thessalonians 1_6** [[2 Thessalonians ch_ 1.md]] (votes_ 2)
+- **Joel 3_5** → **2 Kings 24_13** [[2 Kings ch_ 24.md]] (votes_ 3)
+- **Joel 3_5** → **Jeremiah 51_11** [[Jeremiah ch_ 51.md]] (votes_ 2)
+- **Joel 3_5** → **2 Kings 12_18** [[2 Kings ch_ 12.md]] (votes_ 3)
+- **Joel 3_5** → **Daniel 11_38** [[Daniel ch_ 11.md]] (votes_ 2)
+- **Joel 3_5** → **Jeremiah 50_28** [[Jeremiah ch_ 50.md]] (votes_ 2)
+- **Joel 3_5** → **2 Kings 16_8** [[2 Kings ch_ 16.md]] (votes_ 3)
+- **Joel 3_6** → **Joel 3_3** [[Joel ch_ 3.md]] (votes_ 4)
+- **Joel 3_6** → **Joel 3_8** [[Joel ch_ 3.md]] (votes_ 3)
+- **Joel 3_6** → **Deuteronomy 28_68** [[Deuteronomy ch_ 28.md]] (votes_ 3)
+- **Joel 3_6** → **Deuteronomy 28_32** [[Deuteronomy ch_ 28.md]] (votes_ 2)
+- **Joel 3_6** → **Ezekiel 27_13** [[Ezekiel ch_ 27.md]] (votes_ 6)
+- **Joel 3_7** → **Jeremiah 31_8** [[Jeremiah ch_ 31.md]] (votes_ 2)
+- **Joel 3_7** → **1 Samuel 15_33** [[1 Samuel ch_ 15.md]] (votes_ 2)
+- **Joel 3_7** → **Revelation 19_2** [[Revelation ch_ 19.md]] (votes_ 2)
+- **Joel 3_7** → **Isaiah 11_12** [[Isaiah ch_ 11.md]] (votes_ 2)
+- **Joel 3_7** → **2 Thessalonians 1_6** [[2 Thessalonians ch_ 1.md]] (votes_ 4)
+- **Joel 3_7** → **Jeremiah 30_10** [[Jeremiah ch_ 30.md]] (votes_ 3)
+- **Joel 3_7** → **Matthew 7_2** [[Matthew ch_ 7.md]] (votes_ 2)
+- **Joel 3_7** → **Ezekiel 38_8** [[Ezekiel ch_ 38.md]] (votes_ 2)
+- **Joel 3_7** → **Isaiah 49_12** [[Isaiah ch_ 49.md]] (votes_ 2)
+- **Joel 3_7** → **Revelation 13_10** [[Revelation ch_ 13.md]] (votes_ 2)
+- **Joel 3_7** → **Jeremiah 32_37** [[Jeremiah ch_ 32.md]] (votes_ 2)
+- **Joel 3_7** → **Esther 7_10** [[Esther ch_ 7.md]] (votes_ 2)
+- **Joel 3_7** → **Jeremiah 23_8** [[Jeremiah ch_ 23.md]] (votes_ 5)
+- **Joel 3_7** → **Jeremiah 30_16** [[Jeremiah ch_ 30.md]] (votes_ 4)
+- **Joel 3_7** → **Joel 3_4** [[Joel ch_ 3.md]] (votes_ 2)
+- **Joel 3_7** → **Judges 1_7** [[Judges ch_ 1.md]] (votes_ 2)
+- **Joel 3_7** → **James 2_13** [[James ch_ 2.md]] (votes_ 2)
+- **Joel 3_7** → **Revelation 16_6** [[Revelation ch_ 16.md]] (votes_ 2)
+- **Joel 3_7** → **Ezekiel 36_24** [[Ezekiel ch_ 36.md]] (votes_ 2)
+- **Joel 3_8** → **Judges 4_2** [[Judges ch_ 4.md]] (votes_ 1)
+- **Joel 3_8** → **Judges 2_14** [[Judges ch_ 2.md]] (votes_ 3)
+- **Joel 3_8** → **Deuteronomy 32_30** [[Deuteronomy ch_ 32.md]] (votes_ 1)
+- **Joel 3_8** → **Ezekiel 23_42** [[Ezekiel ch_ 23.md]] (votes_ 1)
+- **Joel 3_8** → **Isaiah 60_14** [[Isaiah ch_ 60.md]] (votes_ 5)
+- **Joel 3_8** → **Job 1_15** [[Job ch_ 1.md]] (votes_ 4)
+- **Joel 3_8** → **Judges 4_9** [[Judges ch_ 4.md]] (votes_ 1)
+- **Joel 3_8** → **Jeremiah 6_20** [[Jeremiah ch_ 6.md]] (votes_ 1)
+- **Joel 3_9** → **Jeremiah 31_10** [[Jeremiah ch_ 31.md]] (votes_ 4)
+- **Joel 3_9** → **Psalms 96_10** [[Psalms ch_ 96.md]] (votes_ 2)
+- **Joel 3_9** → **Micah 3_5** [[Micah ch_ 3.md]] (votes_ 1)
+- **Joel 3_9** → **Jeremiah 50_2** [[Jeremiah ch_ 50.md]] (votes_ 2)
+- **Joel 3_9** → **Isaiah 34_1** [[Isaiah ch_ 34.md]] (votes_ 2)
+- **Joel 3_9** → **Ezekiel 38_7** [[Ezekiel ch_ 38.md]] (votes_ 4)
+- **Joel 3_10** → **2 Chronicles 25_8** [[2 Chronicles ch_ 25.md]] (votes_ 7)
+- **Joel 3_10** → **Isaiah 2_4** [[Isaiah ch_ 2.md]] (votes_ 6)
+- **Joel 3_10** → **Micah 4_3** [[Micah ch_ 4.md]] (votes_ 6)
+- **Joel 3_10** → **Zechariah 12_8** [[Zechariah ch_ 12.md]] (votes_ 10)
+- **Joel 3_10** → **Luke 22_36** [[Luke ch_ 22.md]] (votes_ 2)
+- **Joel 3_11** → **Psalms 103_20** [[Psalms ch_ 103.md]] (votes_ 2)
+- **Joel 3_11** → **Isaiah 37_36** [[Isaiah ch_ 37.md]] (votes_ 2)
+- **Joel 3_11** → **Micah 4_12** [[Micah ch_ 4.md]] (votes_ 2)
+- **Joel 3_11** → **Joel 3_2** [[Joel ch_ 3.md]] (votes_ 2)
+- **Joel 3_11** → **Isaiah 13_3** [[Isaiah ch_ 13.md]] (votes_ 4)
+- **Joel 3_11** → **Zephaniah 3_8** [[Zephaniah ch_ 3.md]] (votes_ 3)
+- **Joel 3_11** → **Revelation 19_14** [[Revelation ch_ 19.md]] (votes_ 2)
+- **Joel 3_11** → **2 Thessalonians 1_7** [[2 Thessalonians ch_ 1.md]] (votes_ 2)
+- **Joel 3_11** → **Isaiah 10_34** [[Isaiah ch_ 10.md]] (votes_ 2)
+- **Joel 3_12** → **Ezekiel 30_3** [[Ezekiel ch_ 30.md]] (votes_ 3)
+- **Joel 3_12** → **2 Chronicles 20_26** [[2 Chronicles ch_ 20.md]] (votes_ 3)
+- **Joel 3_12** → **Isaiah 2_4** [[Isaiah ch_ 2.md]] (votes_ 6)
+- **Joel 3_12** → **Psalms 96_13** [[Psalms ch_ 96.md]] (votes_ 6)
+- **Joel 3_12** → **Psalms 98_9** [[Psalms ch_ 98.md]] (votes_ 6)
+- **Joel 3_12** → **Ezekiel 39_11** [[Ezekiel ch_ 39.md]] (votes_ 3)
+- **Joel 3_12** → **Revelation 19_11** [[Revelation ch_ 19.md]] (votes_ 3)
+- **Joel 3_12** → **Psalms 7_6** [[Psalms ch_ 7.md]] (votes_ 4)
+- **Joel 3_12** → **Micah 4_3** [[Micah ch_ 4.md]] (votes_ 4)
+- **Joel 3_12** → **Joel 3_2** [[Joel ch_ 3.md]] (votes_ 7)
+- **Joel 3_12** → **Isaiah 3_13** [[Isaiah ch_ 3.md]] (votes_ 6)
+- **Joel 3_12** → **Zechariah 14_4** [[Zechariah ch_ 14.md]] (votes_ 4)
+- **Joel 3_12** → **Joel 3_14** [[Joel ch_ 3.md]] (votes_ 4)
+- **Joel 3_13** → **Genesis 18_20** [[Genesis ch_ 18.md]] (votes_ 3)
+- **Joel 3_13** → **Lamentations 1_15** [[Lamentations ch_ 1.md]] (votes_ 3)
+- **Joel 3_13** → **Matthew 13_39** [[Matthew ch_ 13.md]] (votes_ 5)
+- **Joel 3_13** → **Deuteronomy 16_9** [[Deuteronomy ch_ 16.md]] (votes_ 3)
+- **Joel 3_13** → **Mark 4_29** [[Mark ch_ 4.md]] (votes_ 7)
+- **Joel 3_13** → **Hosea 6_11** [[Hosea ch_ 6.md]] (votes_ 7)
+- **Joel 3_13** → **Jeremiah 51_33** [[Jeremiah ch_ 51.md]] (votes_ 6)
+- **Joel 3_13** → **Genesis 15_16** [[Genesis ch_ 15.md]] (votes_ 2)
+- **Joel 3_13** → **Genesis 13_13** [[Genesis ch_ 13.md]] (votes_ 2)
+- **Joel 3_13** → **Isaiah 63_3** [[Isaiah ch_ 63.md]] (votes_ 6)
+- **Joel 3_14** → **Joel 3_2** [[Joel ch_ 3.md]] (votes_ 4)
+- **Joel 3_14** → **Joel 1_15** [[Joel ch_ 1.md]] (votes_ 2)
+- **Joel 3_14** → **Joel 2_1** [[Joel ch_ 2.md]] (votes_ 3)
+- **Joel 3_14** → **2 Peter 3_7** [[2 Peter ch_ 3.md]] (votes_ 3)
+- **Joel 3_14** → **Psalms 37_13** [[Psalms ch_ 37.md]] (votes_ 0)
+- **Joel 3_14** → **Philippians 3_2** [[Philippians ch_ 3.md]] (votes_ 4)
+- **Joel 3_15** → **Joel 2_31** [[Joel ch_ 2.md]] (votes_ 3)
+- **Joel 3_15** → **Isaiah 13_10** [[Isaiah ch_ 13.md]] (votes_ 2)
+- **Joel 3_15** → **Joel 2_10** [[Joel ch_ 2.md]] (votes_ 6)
+- **Joel 3_15** → **Matthew 24_29** [[Matthew ch_ 24.md]] (votes_ 3)
+- **Joel 3_16** → **Isaiah 33_16** [[Isaiah ch_ 33.md]] (votes_ 4)
+- **Joel 3_16** → **Hebrews 12_26** [[Hebrews ch_ 12.md]] (votes_ 3)
+- **Joel 3_16** → **1 Samuel 15_29** [[1 Samuel ch_ 15.md]] (votes_ 4)
+- **Joel 3_16** → **Psalms 61_3** [[Psalms ch_ 61.md]] (votes_ 6)
+- **Joel 3_16** → **Zechariah 10_12** [[Zechariah ch_ 10.md]] (votes_ 3)
+- **Joel 3_16** → **Isaiah 51_16** [[Isaiah ch_ 51.md]] (votes_ 6)
+- **Joel 3_16** → **Isaiah 42_13** [[Isaiah ch_ 42.md]] (votes_ 7)
+- **Joel 3_16** → **Amos 3_8** [[Amos ch_ 3.md]] (votes_ 3)
+- **Joel 3_16** → **Amos 1_2** [[Amos ch_ 1.md]] (votes_ 10)
+- **Joel 3_16** → **Revelation 16_18** [[Revelation ch_ 16.md]] (votes_ 5)
+- **Joel 3_16** → **Jeremiah 16_19** [[Jeremiah ch_ 16.md]] (votes_ 7)
+- **Joel 3_16** → **Haggai 2_6** [[Haggai ch_ 2.md]] (votes_ 8)
+- **Joel 3_16** → **Revelation 11_13** [[Revelation ch_ 11.md]] (votes_ 3)
+- **Joel 3_16** → **Hosea 11_10** [[Hosea ch_ 11.md]] (votes_ 3)
+- **Joel 3_16** → **Revelation 11_19** [[Revelation ch_ 11.md]] (votes_ 3)
+- **Joel 3_16** → **Ezekiel 38_19** [[Ezekiel ch_ 38.md]] (votes_ 6)
+- **Joel 3_16** → **Psalms 29_11** [[Psalms ch_ 29.md]] (votes_ 4)
+- **Joel 3_16** → **Isaiah 33_21** [[Isaiah ch_ 33.md]] (votes_ 2)
+- **Joel 3_16** → **Proverbs 18_10** [[Proverbs ch_ 18.md]] (votes_ 7)
+- **Joel 3_16** → **Zechariah 10_6** [[Zechariah ch_ 10.md]] (votes_ 2)
+- **Joel 3_16** → **Psalms 18_2** [[Psalms ch_ 18.md]] (votes_ 5)
+- **Joel 3_17** → **Isaiah 12_6** [[Isaiah ch_ 12.md]] (votes_ 2)
+- **Joel 3_17** → **Zechariah 8_3** [[Zechariah ch_ 8.md]] (votes_ 2)
+- **Joel 3_17** → **Nahum 1_15** [[Nahum ch_ 1.md]] (votes_ 6)
+- **Joel 3_17** → **Jeremiah 31_23** [[Jeremiah ch_ 31.md]] (votes_ 4)
+- **Joel 3_17** → **Joel 3_21** [[Joel ch_ 3.md]] (votes_ 3)
+- **Joel 3_17** → **Isaiah 4_3** [[Isaiah ch_ 4.md]] (votes_ 5)
+- **Joel 3_17** → **Daniel 11_45** [[Daniel ch_ 11.md]] (votes_ 2)
+- **Joel 3_17** → **Psalms 9_11** [[Psalms ch_ 9.md]] (votes_ 2)
+- **Joel 3_17** → **Micah 4_7** [[Micah ch_ 4.md]] (votes_ 2)
+- **Joel 3_17** → **Revelation 21_27** [[Revelation ch_ 21.md]] (votes_ 5)
+- **Joel 3_17** → **Ezekiel 43_12** [[Ezekiel ch_ 43.md]] (votes_ 2)
+- **Joel 3_17** → **Psalms 76_2** [[Psalms ch_ 76.md]] (votes_ 2)
+- **Joel 3_17** → **Isaiah 35_8** [[Isaiah ch_ 35.md]] (votes_ 2)
+- **Joel 3_17** → **Ezekiel 48_35** [[Ezekiel ch_ 48.md]] (votes_ 2)
+- **Joel 3_17** → **Joel 2_27** [[Joel ch_ 2.md]] (votes_ 7)
+- **Joel 3_17** → **Isaiah 52_1** [[Isaiah ch_ 52.md]] (votes_ 6)
+- **Joel 3_18** → **Job 29_6** [[Job ch_ 29.md]] (votes_ 2)
+- **Joel 3_18** → **Isaiah 35_6** [[Isaiah ch_ 35.md]] (votes_ 5)
+- **Joel 3_18** → **Isaiah 30_25** [[Isaiah ch_ 30.md]] (votes_ 4)
+- **Joel 3_18** → **Psalms 46_4** [[Psalms ch_ 46.md]] (votes_ 3)
+- **Joel 3_18** → **Zechariah 14_8** [[Zechariah ch_ 14.md]] (votes_ 7)
+- **Joel 3_18** → **Numbers 25_1** [[Numbers ch_ 25.md]] (votes_ 4)
+- **Joel 3_18** → **Micah 6_5** [[Micah ch_ 6.md]] (votes_ 1)
+- **Joel 3_18** → **Exodus 3_8** [[Exodus ch_ 3.md]] (votes_ 2)
+- **Joel 3_19** → **Psalms 137_7** [[Psalms ch_ 137.md]] (votes_ 2)
+- **Joel 3_19** → **2 Thessalonians 1_6** [[2 Thessalonians ch_ 1.md]] (votes_ 2)
+- **Joel 3_19** → **Lamentations 4_21** [[Lamentations ch_ 4.md]] (votes_ 2)
+- **Joel 3_19** → **Obadiah 1_1** [[Obadiah ch_ 1.md]] (votes_ 2)
+- **Joel 3_19** → **Isaiah 11_15** [[Isaiah ch_ 11.md]] (votes_ 2)
+- **Joel 3_19** → **Jeremiah 51_35** [[Jeremiah ch_ 51.md]] (votes_ 3)
+- **Joel 3_19** → **Jeremiah 49_17** [[Jeremiah ch_ 49.md]] (votes_ 2)
+- **Joel 3_19** → **Zechariah 10_10** [[Zechariah ch_ 10.md]] (votes_ 2)
+- **Joel 3_20** → **Ezekiel 37_25** [[Ezekiel ch_ 37.md]] (votes_ 7)
+- **Joel 3_20** → **Amos 9_15** [[Amos ch_ 9.md]] (votes_ 4)
+- **Joel 3_20** → **Isaiah 33_20** [[Isaiah ch_ 33.md]] (votes_ 4)
+- **Joel 3_21** → **Joel 3_17** [[Joel ch_ 3.md]] (votes_ 4)
+- **Joel 3_21** → **Ezekiel 36_25** [[Ezekiel ch_ 36.md]] (votes_ 7)
+- **Joel 3_21** → **Ezekiel 36_29** [[Ezekiel ch_ 36.md]] (votes_ 6)
+- **Joel 3_21** → **Isaiah 4_4** [[Isaiah ch_ 4.md]] (votes_ 7)
+- **Joel 3_21** → **Revelation 21_3** [[Revelation ch_ 21.md]] (votes_ 7)
+- **Joel 3_21** → **Matthew 27_25** [[Matthew ch_ 27.md]] (votes_ 1)
+- **Joel 3_21** → **Ezekiel 48_35** [[Ezekiel ch_ 48.md]] (votes_ 5)
