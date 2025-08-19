@@ -1,0 +1,287 @@
+# Deuteronomy 6
+
+**1** ¶ Now these [are] the commandments, the statutes, and the judgments, which the LORD your God commanded to teach you, that ye might do [them] in the land whither ye go to possess it_
+
+**2** That thou mightest fear the LORD thy God, to keep all his statutes and his commandments, which I command thee, thou, and thy son, and thy son's son, all the days of thy life; and that thy days may be prolonged.
+
+**3** Hear therefore, O Israel, and observe to do [it]; that it may be well with thee, and that ye may increase mightily, as the LORD God of thy fathers hath promised thee, in the land that floweth with milk and honey.
+
+**4** ¶ Hear, O Israel_ The LORD our God [is] one LORD_
+
+**5** And thou shalt love the LORD thy God with all thine heart, and with all thy soul, and with all thy might.
+
+**6** And these words, which I command thee this day, shall be in thine heart_
+
+**7** And thou shalt teach them diligently unto thy children, and shalt talk of them when thou sittest in thine house, and when thou walkest by the way, and when thou liest down, and when thou risest up.
+
+**8** And thou shalt bind them for a sign upon thine hand, and they shall be as frontlets between thine eyes.
+
+**9** And thou shalt write them upon the posts of thy house, and on thy gates.
+
+**10** And it shall be, when the LORD thy God shall have brought thee into the land which he sware unto thy fathers, to Abraham, to Isaac, and to Jacob, to give thee great and goodly cities, which thou buildedst not,
+
+**11** And houses full of all good [things], which thou filledst not, and wells digged, which thou diggedst not, vineyards and olive trees, which thou plantedst not; when thou shalt have eaten and be full;
+
+**12** [Then] beware lest thou forget the LORD, which brought thee forth out of the land of Egypt, from the house of bondage.
+
+**13** Thou shalt fear the LORD thy God, and serve him, and shalt swear by his name.
+
+**14** Ye shall not go after other gods, of the gods of the people which [are] round about you;
+
+**15** (For the LORD thy God [is] a jealous God among you) lest the anger of the LORD thy God be kindled against thee, and destroy thee from off the face of the earth.
+
+**16** Ye shall not tempt the LORD your God, as ye tempted [him] in Massah.
+
+**17** ¶ Ye shall diligently keep the commandments of the LORD your God, and his testimonies, and his statutes, which he hath commanded thee.
+
+**18** And thou shalt do [that which is] right and good in the sight of the LORD_ that it may be well with thee, and that thou mayest go in and possess the good land which the LORD sware unto thy fathers,
+
+**19** To cast out all thine enemies from before thee, as the LORD hath spoken.
+
+**20** [And] when thy son asketh thee in time to come, saying, What [mean] the testimonies, and the statutes, and the judgments, which the LORD our God hath commanded you?
+
+**21** Then thou shalt say unto thy son, We were Pharaoh's bondmen in Egypt; and the LORD brought us out of Egypt with a mighty hand_
+
+**22** And the LORD shewed signs and wonders, great and sore, upon Egypt, upon Pharaoh, and upon all his household, before our eyes_
+
+**23** And he brought us out from thence, that he might bring us in, to give us the land which he sware unto our fathers.
+
+**24** And the LORD commanded us to do all these statutes, to fear the LORD our God, for our good always, that he might preserve us alive, as [it is] at this day.
+
+**25** And it shall be our righteousness, if we observe to do all these commandments before the LORD our God, as he hath commanded us.
+
+---
+
+## Cross-References
+
+- **Deuteronomy 6_1** → **Ezekiel 37_24** [[Ezekiel ch_ 37.md]] (votes_ 3)
+- **Deuteronomy 6_1** → **Deuteronomy 12_1** [[Deuteronomy ch_ 12.md]] (votes_ 7)
+- **Deuteronomy 6_1** → **Deuteronomy 4_1** [[Deuteronomy ch_ 4.md]] (votes_ 9)
+- **Deuteronomy 6_1** → **Deuteronomy 4_5** [[Deuteronomy ch_ 4.md]] (votes_ 3)
+- **Deuteronomy 6_1** → **Deuteronomy 5_31** [[Deuteronomy ch_ 5.md]] (votes_ 4)
+- **Deuteronomy 6_1** → **Leviticus 27_34** [[Leviticus ch_ 27.md]] (votes_ 4)
+- **Deuteronomy 6_1** → **Numbers 36_13** [[Numbers ch_ 36.md]] (votes_ 3)
+- **Deuteronomy 6_1** → **Deuteronomy 4_14** [[Deuteronomy ch_ 4.md]] (votes_ 3)
+- **Deuteronomy 6_1** → **Deuteronomy 4_45** [[Deuteronomy ch_ 4.md]] (votes_ 5)
+- **Deuteronomy 6_2** → **Deuteronomy 10_20** [[Deuteronomy ch_ 10.md]] (votes_ 4)
+- **Deuteronomy 6_2** → **Genesis 22_12** [[Genesis ch_ 22.md]] (votes_ 3)
+- **Deuteronomy 6_2** → **Deuteronomy 4_10** [[Deuteronomy ch_ 4.md]] (votes_ 3)
+- **Deuteronomy 6_2** → **Luke 12_5** [[Luke ch_ 12.md]] (votes_ 4)
+- **Deuteronomy 6_2** → **Deuteronomy 5_16** [[Deuteronomy ch_ 5.md]] (votes_ 5)
+- **Deuteronomy 6_2** → **Deuteronomy 22_7** [[Deuteronomy ch_ 22.md]] (votes_ 3)
+- **Deuteronomy 6_2** → **Ecclesiastes 12_13** [[Ecclesiastes ch_ 12.md]] (votes_ 9)
+- **Deuteronomy 6_2** → **Deuteronomy 13_4** [[Deuteronomy ch_ 13.md]] (votes_ 9)
+- **Deuteronomy 6_2** → **Deuteronomy 4_40** [[Deuteronomy ch_ 4.md]] (votes_ 11)
+- **Deuteronomy 6_2** → **Deuteronomy 6_7** [[Deuteronomy ch_ 6.md]] (votes_ 3)
+- **Deuteronomy 6_2** → **Proverbs 16_6** [[Proverbs ch_ 16.md]] (votes_ 3)
+- **Deuteronomy 6_2** → **Psalms 111_10** [[Psalms ch_ 111.md]] (votes_ 4)
+- **Deuteronomy 6_2** → **Exodus 20_20** [[Exodus ch_ 20.md]] (votes_ 9)
+- **Deuteronomy 6_2** → **Job 28_28** [[Job ch_ 28.md]] (votes_ 5)
+- **Deuteronomy 6_2** → **Deuteronomy 5_33** [[Deuteronomy ch_ 5.md]] (votes_ 3)
+- **Deuteronomy 6_2** → **Genesis 18_19** [[Genesis ch_ 18.md]] (votes_ 3)
+- **Deuteronomy 6_2** → **Psalms 128_1** [[Psalms ch_ 128.md]] (votes_ 7)
+- **Deuteronomy 6_2** → **Proverbs 3_16** [[Proverbs ch_ 3.md]] (votes_ 6)
+- **Deuteronomy 6_2** → **1 Peter 1_17** [[1 Peter ch_ 1.md]] (votes_ 4)
+- **Deuteronomy 6_3** → **Exodus 3_8** [[Exodus ch_ 3.md]] (votes_ 5)
+- **Deuteronomy 6_3** → **Genesis 22_17** [[Genesis ch_ 22.md]] (votes_ 6)
+- **Deuteronomy 6_3** → **Genesis 13_16** [[Genesis ch_ 13.md]] (votes_ 3)
+- **Deuteronomy 6_3** → **Genesis 28_14** [[Genesis ch_ 28.md]] (votes_ 5)
+- **Deuteronomy 6_3** → **Exodus 1_7** [[Exodus ch_ 1.md]] (votes_ 3)
+- **Deuteronomy 6_3** → **Isaiah 3_10** [[Isaiah ch_ 3.md]] (votes_ 3)
+- **Deuteronomy 6_3** → **Genesis 26_4** [[Genesis ch_ 26.md]] (votes_ 5)
+- **Deuteronomy 6_3** → **Deuteronomy 4_6** [[Deuteronomy ch_ 4.md]] (votes_ 3)
+- **Deuteronomy 6_3** → **Ecclesiastes 8_12** [[Ecclesiastes ch_ 8.md]] (votes_ 3)
+- **Deuteronomy 6_3** → **Genesis 15_5** [[Genesis ch_ 15.md]] (votes_ 5)
+- **Deuteronomy 6_3** → **Genesis 12_2** [[Genesis ch_ 12.md]] (votes_ 3)
+- **Deuteronomy 6_3** → **Acts 7_17** [[Acts ch_ 7.md]] (votes_ 3)
+- **Deuteronomy 6_4** → **1 Kings 18_21** [[1 Kings ch_ 18.md]] (votes_ 9)
+- **Deuteronomy 6_4** → **John 10_30** [[John ch_ 10.md]] (votes_ 16)
+- **Deuteronomy 6_4** → **2 Kings 19_5** [[2 Kings ch_ 19.md]] (votes_ -7)
+- **Deuteronomy 6_4** → **1 Timothy 2_5** [[1 Timothy ch_ 2.md]] (votes_ 32)
+- **Deuteronomy 6_4** → **Isaiah 42_8** [[Isaiah ch_ 42.md]] (votes_ 15)
+- **Deuteronomy 6_4** → **Isaiah 44_8** [[Isaiah ch_ 44.md]] (votes_ 16)
+- **Deuteronomy 6_4** → **Deuteronomy 5_6** [[Deuteronomy ch_ 5.md]] (votes_ 9)
+- **Deuteronomy 6_4** → **Isaiah 44_6** [[Isaiah ch_ 44.md]] (votes_ 39)
+- **Deuteronomy 6_4** → **John 17_3** [[John ch_ 17.md]] (votes_ 21)
+- **Deuteronomy 6_4** → **1 Chronicles 29_10** [[1 Chronicles ch_ 29.md]] (votes_ 8)
+- **Deuteronomy 6_5** → **2 Kings 23_25** [[2 Kings ch_ 23.md]] (votes_ 43)
+- **Deuteronomy 6_5** → **Deuteronomy 11_13** [[Deuteronomy ch_ 11.md]] (votes_ 47)
+- **Deuteronomy 6_5** → **Matthew 10_37** [[Matthew ch_ 10.md]] (votes_ 34)
+- **Deuteronomy 6_5** → **Matthew 22_37** [[Matthew ch_ 22.md]] (votes_ 104)
+- **Deuteronomy 6_5** → **Deuteronomy 30_6** [[Deuteronomy ch_ 30.md]] (votes_ 65)
+- **Deuteronomy 6_5** → **Deuteronomy 10_12** [[Deuteronomy ch_ 10.md]] (votes_ 80)
+- **Deuteronomy 6_5** → **Luke 10_27** [[Luke ch_ 10.md]] (votes_ 95)
+- **Deuteronomy 6_5** → **Mark 12_33** [[Mark ch_ 12.md]] (votes_ 47)
+- **Deuteronomy 6_5** → **1 John 5_3** [[1 John ch_ 5.md]] (votes_ 54)
+- **Deuteronomy 6_5** → **Deuteronomy 4_29** [[Deuteronomy ch_ 4.md]] (votes_ 61)
+- **Deuteronomy 6_5** → **Mark 12_30** [[Mark ch_ 12.md]] (votes_ 128)
+- **Deuteronomy 6_6** → **Deuteronomy 11_18** [[Deuteronomy ch_ 11.md]] (votes_ 15)
+- **Deuteronomy 6_6** → **Psalms 40_8** [[Psalms ch_ 40.md]] (votes_ 4)
+- **Deuteronomy 6_6** → **Colossians 3_16** [[Colossians ch_ 3.md]] (votes_ 19)
+- **Deuteronomy 6_6** → **Luke 8_15** [[Luke ch_ 8.md]] (votes_ 7)
+- **Deuteronomy 6_6** → **Deuteronomy 32_46** [[Deuteronomy ch_ 32.md]] (votes_ 11)
+- **Deuteronomy 6_6** → **Proverbs 3_5** [[Proverbs ch_ 3.md]] (votes_ 7)
+- **Deuteronomy 6_6** → **Proverbs 7_3** [[Proverbs ch_ 7.md]] (votes_ 17)
+- **Deuteronomy 6_6** → **Psalms 119_11** [[Psalms ch_ 119.md]] (votes_ 10)
+- **Deuteronomy 6_6** → **Jeremiah 31_33** [[Jeremiah ch_ 31.md]] (votes_ 17)
+- **Deuteronomy 6_6** → **2 Corinthians 3_3** [[2 Corinthians ch_ 3.md]] (votes_ 12)
+- **Deuteronomy 6_6** → **Psalms 119_98** [[Psalms ch_ 119.md]] (votes_ 4)
+- **Deuteronomy 6_6** → **Psalms 37_31** [[Psalms ch_ 37.md]] (votes_ 13)
+- **Deuteronomy 6_6** → **Luke 2_51** [[Luke ch_ 2.md]] (votes_ 6)
+- **Deuteronomy 6_6** → **2 John 1_2** [[2 John ch_ 1.md]] (votes_ 3)
+- **Deuteronomy 6_6** → **Isaiah 51_7** [[Isaiah ch_ 51.md]] (votes_ 8)
+- **Deuteronomy 6_7** → **Matthew 12_35** [[Matthew ch_ 12.md]] (votes_ 6)
+- **Deuteronomy 6_7** → **Luke 6_45** [[Luke ch_ 6.md]] (votes_ 8)
+- **Deuteronomy 6_7** → **Proverbs 10_21** [[Proverbs ch_ 10.md]] (votes_ 5)
+- **Deuteronomy 6_7** → **Ruth 2_4** [[Ruth ch_ 2.md]] (votes_ 2)
+- **Deuteronomy 6_7** → **Ruth 2_12** [[Ruth ch_ 2.md]] (votes_ 1)
+- **Deuteronomy 6_7** → **Ephesians 4_29** [[Ephesians ch_ 4.md]] (votes_ 13)
+- **Deuteronomy 6_7** → **Proverbs 15_2** [[Proverbs ch_ 15.md]] (votes_ 5)
+- **Deuteronomy 6_7** → **Proverbs 15_7** [[Proverbs ch_ 15.md]] (votes_ 4)
+- **Deuteronomy 6_7** → **1 Peter 3_15** [[1 Peter ch_ 3.md]] (votes_ 16)
+- **Deuteronomy 6_7** → **Colossians 4_6** [[Colossians ch_ 4.md]] (votes_ 5)
+- **Deuteronomy 6_7** → **Psalms 129_8** [[Psalms ch_ 129.md]] (votes_ 4)
+- **Deuteronomy 6_7** → **Deuteronomy 11_19** [[Deuteronomy ch_ 11.md]] (votes_ 32)
+- **Deuteronomy 6_7** → **Psalms 119_46** [[Psalms ch_ 119.md]] (votes_ 4)
+- **Deuteronomy 6_7** → **Ruth 4_11** [[Ruth ch_ 4.md]] (votes_ 3)
+- **Deuteronomy 6_7** → **Deuteronomy 6_2** [[Deuteronomy ch_ 6.md]] (votes_ 15)
+- **Deuteronomy 6_7** → **Malachi 3_16** [[Malachi ch_ 3.md]] (votes_ 3)
+- **Deuteronomy 6_7** → **Ephesians 6_4** [[Ephesians ch_ 6.md]] (votes_ 27)
+- **Deuteronomy 6_7** → **Genesis 18_19** [[Genesis ch_ 18.md]] (votes_ 11)
+- **Deuteronomy 6_7** → **Psalms 37_30** [[Psalms ch_ 37.md]] (votes_ 3)
+- **Deuteronomy 6_7** → **Proverbs 6_22** [[Proverbs ch_ 6.md]] (votes_ 9)
+- **Deuteronomy 6_8** → **Proverbs 7_3** [[Proverbs ch_ 7.md]] (votes_ 12)
+- **Deuteronomy 6_8** → **Matthew 23_5** [[Matthew ch_ 23.md]] (votes_ 6)
+- **Deuteronomy 6_8** → **Proverbs 3_3** [[Proverbs ch_ 3.md]] (votes_ 14)
+- **Deuteronomy 6_8** → **Hebrews 2_1** [[Hebrews ch_ 2.md]] (votes_ 6)
+- **Deuteronomy 6_8** → **Proverbs 6_21** [[Proverbs ch_ 6.md]] (votes_ 17)
+- **Deuteronomy 6_8** → **Exodus 13_9** [[Exodus ch_ 13.md]] (votes_ 12)
+- **Deuteronomy 6_8** → **Exodus 13_16** [[Exodus ch_ 13.md]] (votes_ 8)
+- **Deuteronomy 6_8** → **Deuteronomy 11_18** [[Deuteronomy ch_ 11.md]] (votes_ 14)
+- **Deuteronomy 6_9** → **Deuteronomy 11_20** [[Deuteronomy ch_ 11.md]] (votes_ 12)
+- **Deuteronomy 6_9** → **Isaiah 57_8** [[Isaiah ch_ 57.md]] (votes_ 6)
+- **Deuteronomy 6_9** → **Habakkuk 2_2** [[Habakkuk ch_ 2.md]] (votes_ 4)
+- **Deuteronomy 6_9** → **Isaiah 30_8** [[Isaiah ch_ 30.md]] (votes_ 8)
+- **Deuteronomy 6_9** → **Exodus 12_7** [[Exodus ch_ 12.md]] (votes_ 3)
+- **Deuteronomy 6_10** → **Joshua 24_13** [[Joshua ch_ 24.md]] (votes_ 22)
+- **Deuteronomy 6_10** → **Nehemiah 9_25** [[Nehemiah ch_ 9.md]] (votes_ 15)
+- **Deuteronomy 6_10** → **Genesis 15_18** [[Genesis ch_ 15.md]] (votes_ 7)
+- **Deuteronomy 6_10** → **Genesis 28_13** [[Genesis ch_ 28.md]] (votes_ 6)
+- **Deuteronomy 6_10** → **Psalms 78_55** [[Psalms ch_ 78.md]] (votes_ 9)
+- **Deuteronomy 6_10** → **Genesis 26_3** [[Genesis ch_ 26.md]] (votes_ 8)
+- **Deuteronomy 6_10** → **Psalms 105_44** [[Psalms ch_ 105.md]] (votes_ 16)
+- **Deuteronomy 6_11** → **Deuteronomy 32_15** [[Deuteronomy ch_ 32.md]] (votes_ 6)
+- **Deuteronomy 6_11** → **Judges 3_7** [[Judges ch_ 3.md]] (votes_ 5)
+- **Deuteronomy 6_13** → **Matthew 4_10** [[Matthew ch_ 4.md]] (votes_ 11)
+- **Deuteronomy 6_13** → **Jeremiah 5_2** [[Jeremiah ch_ 5.md]] (votes_ 3)
+- **Deuteronomy 6_13** → **Deuteronomy 6_2** [[Deuteronomy ch_ 6.md]] (votes_ 4)
+- **Deuteronomy 6_13** → **Isaiah 45_23** [[Isaiah ch_ 45.md]] (votes_ 5)
+- **Deuteronomy 6_13** → **Leviticus 19_12** [[Leviticus ch_ 19.md]] (votes_ 7)
+- **Deuteronomy 6_13** → **Joshua 2_12** [[Joshua ch_ 2.md]] (votes_ 4)
+- **Deuteronomy 6_13** → **Jeremiah 4_2** [[Jeremiah ch_ 4.md]] (votes_ 4)
+- **Deuteronomy 6_13** → **Jeremiah 5_7** [[Jeremiah ch_ 5.md]] (votes_ 3)
+- **Deuteronomy 6_13** → **Deuteronomy 5_29** [[Deuteronomy ch_ 5.md]] (votes_ 4)
+- **Deuteronomy 6_13** → **Psalms 15_4** [[Psalms ch_ 15.md]] (votes_ 3)
+- **Deuteronomy 6_13** → **Deuteronomy 10_12** [[Deuteronomy ch_ 10.md]] (votes_ 6)
+- **Deuteronomy 6_13** → **Luke 4_8** [[Luke ch_ 4.md]] (votes_ 14)
+- **Deuteronomy 6_13** → **Psalms 63_11** [[Psalms ch_ 63.md]] (votes_ 5)
+- **Deuteronomy 6_13** → **Deuteronomy 10_20** [[Deuteronomy ch_ 10.md]] (votes_ 11)
+- **Deuteronomy 6_13** → **Jeremiah 12_16** [[Jeremiah ch_ 12.md]] (votes_ 5)
+- **Deuteronomy 6_13** → **Isaiah 65_16** [[Isaiah ch_ 65.md]] (votes_ 5)
+- **Deuteronomy 6_13** → **Deuteronomy 13_4** [[Deuteronomy ch_ 13.md]] (votes_ 9)
+- **Deuteronomy 6_14** → **Deuteronomy 13_7** [[Deuteronomy ch_ 13.md]] (votes_ 6)
+- **Deuteronomy 6_14** → **Deuteronomy 8_19** [[Deuteronomy ch_ 8.md]] (votes_ 5)
+- **Deuteronomy 6_14** → **1 John 5_21** [[1 John ch_ 5.md]] (votes_ 6)
+- **Deuteronomy 6_14** → **Deuteronomy 11_28** [[Deuteronomy ch_ 11.md]] (votes_ 4)
+- **Deuteronomy 6_14** → **Jeremiah 25_6** [[Jeremiah ch_ 25.md]] (votes_ 9)
+- **Deuteronomy 6_15** → **1 Corinthians 10_22** [[1 Corinthians ch_ 10.md]] (votes_ 1)
+- **Deuteronomy 6_15** → **Psalms 90_11** [[Psalms ch_ 90.md]] (votes_ 2)
+- **Deuteronomy 6_15** → **2 Chronicles 36_16** [[2 Chronicles ch_ 36.md]] (votes_ 2)
+- **Deuteronomy 6_15** → **Psalms 90_7** [[Psalms ch_ 90.md]] (votes_ 2)
+- **Deuteronomy 6_15** → **Amos 3_2** [[Amos ch_ 3.md]] (votes_ 2)
+- **Deuteronomy 6_15** → **Deuteronomy 5_9** [[Deuteronomy ch_ 5.md]] (votes_ 2)
+- **Deuteronomy 6_15** → **Deuteronomy 4_24** [[Deuteronomy ch_ 4.md]] (votes_ 9)
+- **Deuteronomy 6_15** → **Exodus 32_12** [[Exodus ch_ 32.md]] (votes_ 2)
+- **Deuteronomy 6_15** → **Genesis 7_4** [[Genesis ch_ 7.md]] (votes_ 2)
+- **Deuteronomy 6_15** → **Deuteronomy 7_4** [[Deuteronomy ch_ 7.md]] (votes_ 3)
+- **Deuteronomy 6_15** → **Exodus 20_5** [[Exodus ch_ 20.md]] (votes_ 7)
+- **Deuteronomy 6_15** → **Deuteronomy 11_17** [[Deuteronomy ch_ 11.md]] (votes_ 3)
+- **Deuteronomy 6_15** → **1 Kings 13_34** [[1 Kings ch_ 13.md]] (votes_ 2)
+- **Deuteronomy 6_15** → **Amos 9_8** [[Amos ch_ 9.md]] (votes_ 2)
+- **Deuteronomy 6_16** → **Exodus 17_2** [[Exodus ch_ 17.md]] (votes_ 14)
+- **Deuteronomy 6_16** → **Luke 4_12** [[Luke ch_ 4.md]] (votes_ 26)
+- **Deuteronomy 6_16** → **1 Corinthians 10_9** [[1 Corinthians ch_ 10.md]] (votes_ 17)
+- **Deuteronomy 6_16** → **Matthew 4_7** [[Matthew ch_ 4.md]] (votes_ 25)
+- **Deuteronomy 6_16** → **Exodus 17_7** [[Exodus ch_ 17.md]] (votes_ 30)
+- **Deuteronomy 6_16** → **Numbers 20_13** [[Numbers ch_ 20.md]] (votes_ 8)
+- **Deuteronomy 6_17** → **2 Peter 3_14** [[2 Peter ch_ 3.md]] (votes_ 5)
+- **Deuteronomy 6_17** → **Exodus 15_26** [[Exodus ch_ 15.md]] (votes_ 3)
+- **Deuteronomy 6_17** → **Deuteronomy 11_13** [[Deuteronomy ch_ 11.md]] (votes_ 2)
+- **Deuteronomy 6_17** → **Deuteronomy 11_22** [[Deuteronomy ch_ 11.md]] (votes_ 7)
+- **Deuteronomy 6_17** → **Hebrews 6_11** [[Hebrews ch_ 6.md]] (votes_ 2)
+- **Deuteronomy 6_17** → **Titus 3_8** [[Titus ch_ 3.md]] (votes_ 3)
+- **Deuteronomy 6_17** → **Psalms 119_4** [[Psalms ch_ 119.md]] (votes_ 7)
+- **Deuteronomy 6_17** → **1 Corinthians 15_58** [[1 Corinthians ch_ 15.md]] (votes_ 5)
+- **Deuteronomy 6_18** → **Ezekiel 33_16** [[Ezekiel ch_ 33.md]] (votes_ 2)
+- **Deuteronomy 6_18** → **Ezekiel 33_14** [[Ezekiel ch_ 33.md]] (votes_ 2)
+- **Deuteronomy 6_18** → **Deuteronomy 12_25** [[Deuteronomy ch_ 12.md]] (votes_ 5)
+- **Deuteronomy 6_18** → **Romans 12_2** [[Romans ch_ 12.md]] (votes_ 4)
+- **Deuteronomy 6_18** → **Ezekiel 33_19** [[Ezekiel ch_ 33.md]] (votes_ 3)
+- **Deuteronomy 6_18** → **Deuteronomy 4_40** [[Deuteronomy ch_ 4.md]] (votes_ 8)
+- **Deuteronomy 6_18** → **Isaiah 3_10** [[Isaiah ch_ 3.md]] (votes_ 2)
+- **Deuteronomy 6_18** → **Ezekiel 18_5** [[Ezekiel ch_ 18.md]] (votes_ 2)
+- **Deuteronomy 6_18** → **Psalms 19_11** [[Psalms ch_ 19.md]] (votes_ 2)
+- **Deuteronomy 6_18** → **Deuteronomy 5_29** [[Deuteronomy ch_ 5.md]] (votes_ 4)
+- **Deuteronomy 6_18** → **Deuteronomy 8_11** [[Deuteronomy ch_ 8.md]] (votes_ 2)
+- **Deuteronomy 6_18** → **Deuteronomy 12_28** [[Deuteronomy ch_ 12.md]] (votes_ 2)
+- **Deuteronomy 6_18** → **John 8_29** [[John ch_ 8.md]] (votes_ 3)
+- **Deuteronomy 6_18** → **Deuteronomy 13_18** [[Deuteronomy ch_ 13.md]] (votes_ 2)
+- **Deuteronomy 6_18** → **Ezekiel 18_19** [[Ezekiel ch_ 18.md]] (votes_ 2)
+- **Deuteronomy 6_18** → **Deuteronomy 5_33** [[Deuteronomy ch_ 5.md]] (votes_ 2)
+- **Deuteronomy 6_18** → **Ezekiel 18_21** [[Ezekiel ch_ 18.md]] (votes_ 2)
+- **Deuteronomy 6_18** → **Ezekiel 18_27** [[Ezekiel ch_ 18.md]] (votes_ 2)
+- **Deuteronomy 6_18** → **Hosea 14_9** [[Hosea ch_ 14.md]] (votes_ 2)
+- **Deuteronomy 6_18** → **Exodus 15_26** [[Exodus ch_ 15.md]] (votes_ 2)
+- **Deuteronomy 6_20** → **Proverbs 22_6** [[Proverbs ch_ 22.md]] (votes_ 0)
+- **Deuteronomy 6_20** → **Deuteronomy 6_7** [[Deuteronomy ch_ 6.md]] (votes_ 1)
+- **Deuteronomy 6_20** → **Exodus 12_26** [[Exodus ch_ 12.md]] (votes_ 5)
+- **Deuteronomy 6_20** → **Exodus 13_14** [[Exodus ch_ 13.md]] (votes_ 7)
+- **Deuteronomy 6_21** → **Isaiah 51_1** [[Isaiah ch_ 51.md]] (votes_ 2)
+- **Deuteronomy 6_21** → **Deuteronomy 5_15** [[Deuteronomy ch_ 5.md]] (votes_ 2)
+- **Deuteronomy 6_21** → **Exodus 3_19** [[Exodus ch_ 3.md]] (votes_ 2)
+- **Deuteronomy 6_21** → **Deuteronomy 5_6** [[Deuteronomy ch_ 5.md]] (votes_ 3)
+- **Deuteronomy 6_21** → **Exodus 13_3** [[Exodus ch_ 13.md]] (votes_ 2)
+- **Deuteronomy 6_21** → **Deuteronomy 15_15** [[Deuteronomy ch_ 15.md]] (votes_ 3)
+- **Deuteronomy 6_21** → **Exodus 20_2** [[Exodus ch_ 20.md]] (votes_ 3)
+- **Deuteronomy 6_22** → **Deuteronomy 7_19** [[Deuteronomy ch_ 7.md]] (votes_ 3)
+- **Deuteronomy 6_22** → **Psalms 91_8** [[Psalms ch_ 91.md]] (votes_ 3)
+- **Deuteronomy 6_22** → **Deuteronomy 4_3** [[Deuteronomy ch_ 4.md]] (votes_ 2)
+- **Deuteronomy 6_22** → **Psalms 135_9** [[Psalms ch_ 135.md]] (votes_ 1)
+- **Deuteronomy 6_22** → **Deuteronomy 3_21** [[Deuteronomy ch_ 3.md]] (votes_ 2)
+- **Deuteronomy 6_22** → **Deuteronomy 4_34** [[Deuteronomy ch_ 4.md]] (votes_ 4)
+- **Deuteronomy 6_22** → **Deuteronomy 1_30** [[Deuteronomy ch_ 1.md]] (votes_ 2)
+- **Deuteronomy 6_23** → **Exodus 13_5** [[Exodus ch_ 13.md]] (votes_ 4)
+- **Deuteronomy 6_23** → **Deuteronomy 1_8** [[Deuteronomy ch_ 1.md]] (votes_ 4)
+- **Deuteronomy 6_23** → **Deuteronomy 6_10** [[Deuteronomy ch_ 6.md]] (votes_ 4)
+- **Deuteronomy 6_23** → **Deuteronomy 6_18** [[Deuteronomy ch_ 6.md]] (votes_ 7)
+- **Deuteronomy 6_23** → **Deuteronomy 1_35** [[Deuteronomy ch_ 1.md]] (votes_ 1)
+- **Deuteronomy 6_24** → **Psalms 66_9** [[Psalms ch_ 66.md]] (votes_ 2)
+- **Deuteronomy 6_24** → **Deuteronomy 8_3** [[Deuteronomy ch_ 8.md]] (votes_ 2)
+- **Deuteronomy 6_24** → **Proverbs 22_4** [[Proverbs ch_ 22.md]] (votes_ 2)
+- **Deuteronomy 6_24** → **Matthew 6_33** [[Matthew ch_ 6.md]] (votes_ 2)
+- **Deuteronomy 6_24** → **Deuteronomy 4_4** [[Deuteronomy ch_ 4.md]] (votes_ 2)
+- **Deuteronomy 6_24** → **Romans 10_5** [[Romans ch_ 10.md]] (votes_ 4)
+- **Deuteronomy 6_24** → **Proverbs 9_12** [[Proverbs ch_ 9.md]] (votes_ 2)
+- **Deuteronomy 6_24** → **Isaiah 3_10** [[Isaiah ch_ 3.md]] (votes_ 5)
+- **Deuteronomy 6_24** → **Jeremiah 32_39** [[Jeremiah ch_ 32.md]] (votes_ 13)
+- **Deuteronomy 6_24** → **Deuteronomy 8_1** [[Deuteronomy ch_ 8.md]] (votes_ 4)
+- **Deuteronomy 6_24** → **Deuteronomy 4_1** [[Deuteronomy ch_ 4.md]] (votes_ 4)
+- **Deuteronomy 6_24** → **Psalms 41_2** [[Psalms ch_ 41.md]] (votes_ 8)
+- **Deuteronomy 6_25** → **Romans 10_3** [[Romans ch_ 10.md]] (votes_ 6)
+- **Deuteronomy 6_25** → **Galatians 3_12** [[Galatians ch_ 3.md]] (votes_ 1)
+- **Deuteronomy 6_25** → **Deuteronomy 24_13** [[Deuteronomy ch_ 24.md]] (votes_ 7)
+- **Deuteronomy 6_25** → **Psalms 119_6** [[Psalms ch_ 119.md]] (votes_ 2)
+- **Deuteronomy 6_25** → **Proverbs 12_28** [[Proverbs ch_ 12.md]] (votes_ 2)
+- **Deuteronomy 6_25** → **James 2_10** [[James ch_ 2.md]] (votes_ 2)
+- **Deuteronomy 6_25** → **Leviticus 18_5** [[Leviticus ch_ 18.md]] (votes_ 2)
+- **Deuteronomy 6_25** → **Ezekiel 20_11** [[Ezekiel ch_ 20.md]] (votes_ 1)

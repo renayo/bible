@@ -1,0 +1,218 @@
+# Deuteronomy 13
+
+**1** ¶ If there arise among you a prophet, or a dreamer of dreams, and giveth thee a sign or a wonder,
+
+**2** And the sign or the wonder come to pass, whereof he spake unto thee, saying, Let us go after other gods, which thou hast not known, and let us serve them;
+
+**3** Thou shalt not hearken unto the words of that prophet, or that dreamer of dreams_ for the LORD your God proveth you, to know whether ye love the LORD your God with all your heart and with all your soul.
+
+**4** Ye shall walk after the LORD your God, and fear him, and keep his commandments, and obey his voice, and ye shall serve him, and cleave unto him.
+
+**5** And that prophet, or that dreamer of dreams, shall be put to death; because he hath spoken to turn [you] away from the LORD your God, which brought you out of the land of Egypt, and redeemed you out of the house of bondage, to thrust thee out of the way which the LORD thy God commanded thee to walk in. So shalt thou put the evil away from the midst of thee.
+
+**6** ¶ If thy brother, the son of thy mother, or thy son, or thy daughter, or the wife of thy bosom, or thy friend, which [is] as thine own soul, entice thee secretly, saying, Let us go and serve other gods, which thou hast not known, thou, nor thy fathers;
+
+**7** [Namely], of the gods of the people which [are] round about you, nigh unto thee, or far off from thee, from the [one] end of the earth even unto the [other] end of the earth;
+
+**8** Thou shalt not consent unto him, nor hearken unto him; neither shall thine eye pity him, neither shalt thou spare, neither shalt thou conceal him_
+
+**9** But thou shalt surely kill him; thine hand shall be first upon him to put him to death, and afterwards the hand of all the people.
+
+**10** And thou shalt stone him with stones, that he die; because he hath sought to thrust thee away from the LORD thy God, which brought thee out of the land of Egypt, from the house of bondage.
+
+**11** And all Israel shall hear, and fear, and shall do no more any such wickedness as this is among you.
+
+**12** ¶ If thou shalt hear [say] in one of thy cities, which the LORD thy God hath given thee to dwell there, saying,
+
+**13** [Certain] men, the children of Belial, are gone out from among you, and have withdrawn the inhabitants of their city, saying, Let us go and serve other gods, which ye have not known;
+
+**14** Then shalt thou enquire, and make search, and ask diligently; and, behold, [if it be] truth, [and] the thing certain, [that] such abomination is wrought among you;
+
+**15** Thou shalt surely smite the inhabitants of that city with the edge of the sword, destroying it utterly, and all that [is] therein, and the cattle thereof, with the edge of the sword.
+
+**16** And thou shalt gather all the spoil of it into the midst of the street thereof, and shalt burn with fire the city, and all the spoil thereof every whit, for the LORD thy God_ and it shall be an heap for ever; it shall not be built again.
+
+**17** And there shall cleave nought of the cursed thing to thine hand_ that the LORD may turn from the fierceness of his anger, and shew thee mercy, and have compassion upon thee, and multiply thee, as he hath sworn unto thy fathers;
+
+**18** When thou shalt hearken to the voice of the LORD thy God, to keep all his commandments which I command thee this day, to do [that which is] right in the eyes of the LORD thy God.
+
+---
+
+## Cross-References
+
+- **Deuteronomy 13_1** → **Zechariah 10_2** [[Zechariah ch_ 10.md]] (votes_ 3)
+- **Deuteronomy 13_1** → **Ezekiel 13_23** [[Ezekiel ch_ 13.md]] (votes_ 3)
+- **Deuteronomy 13_1** → **Mark 13_22** [[Mark ch_ 13.md]] (votes_ 4)
+- **Deuteronomy 13_1** → **Luke 6_26** [[Luke ch_ 6.md]] (votes_ 4)
+- **Deuteronomy 13_1** → **Jeremiah 29_24** [[Jeremiah ch_ 29.md]] (votes_ 2)
+- **Deuteronomy 13_1** → **Matthew 24_11** [[Matthew ch_ 24.md]] (votes_ 3)
+- **Deuteronomy 13_1** → **Jeremiah 27_9** [[Jeremiah ch_ 27.md]] (votes_ 5)
+- **Deuteronomy 13_1** → **Isaiah 9_15** [[Isaiah ch_ 9.md]] (votes_ 5)
+- **Deuteronomy 13_1** → **2 Thessalonians 2_9** [[2 Thessalonians ch_ 2.md]] (votes_ 4)
+- **Deuteronomy 13_1** → **Jeremiah 23_11** [[Jeremiah ch_ 23.md]] (votes_ 3)
+- **Deuteronomy 13_1** → **Matthew 7_15** [[Matthew ch_ 7.md]] (votes_ 3)
+- **Deuteronomy 13_1** → **Jeremiah 6_13** [[Jeremiah ch_ 6.md]] (votes_ 3)
+- **Deuteronomy 13_1** → **Matthew 24_24** [[Matthew ch_ 24.md]] (votes_ 2)
+- **Deuteronomy 13_1** → **Zechariah 13_4** [[Zechariah ch_ 13.md]] (votes_ 3)
+- **Deuteronomy 13_1** → **2 Peter 2_1** [[2 Peter ch_ 2.md]] (votes_ 2)
+- **Deuteronomy 13_1** → **1 John 4_1** [[1 John ch_ 4.md]] (votes_ 9)
+- **Deuteronomy 13_1** → **Jeremiah 29_8** [[Jeremiah ch_ 29.md]] (votes_ 7)
+- **Deuteronomy 13_1** → **1 Kings 13_18** [[1 Kings ch_ 13.md]] (votes_ 5)
+- **Deuteronomy 13_2** → **1 Kings 13_3** [[1 Kings ch_ 13.md]] (votes_ 2)
+- **Deuteronomy 13_2** → **Deuteronomy 18_22** [[Deuteronomy ch_ 18.md]] (votes_ 3)
+- **Deuteronomy 13_2** → **Deuteronomy 13_6** [[Deuteronomy ch_ 13.md]] (votes_ 3)
+- **Deuteronomy 13_2** → **Jeremiah 28_9** [[Jeremiah ch_ 28.md]] (votes_ 3)
+- **Deuteronomy 13_2** → **Matthew 24_24** [[Matthew ch_ 24.md]] (votes_ 3)
+- **Deuteronomy 13_2** → **Exodus 7_22** [[Exodus ch_ 7.md]] (votes_ 2)
+- **Deuteronomy 13_2** → **Deuteronomy 13_13** [[Deuteronomy ch_ 13.md]] (votes_ 2)
+- **Deuteronomy 13_3** → **Psalms 66_10** [[Psalms ch_ 66.md]] (votes_ 5)
+- **Deuteronomy 13_3** → **Deuteronomy 8_2** [[Deuteronomy ch_ 8.md]] (votes_ 6)
+- **Deuteronomy 13_3** → **Isaiah 8_20** [[Isaiah ch_ 8.md]] (votes_ 3)
+- **Deuteronomy 13_3** → **Revelation 13_14** [[Revelation ch_ 13.md]] (votes_ 3)
+- **Deuteronomy 13_3** → **Ephesians 4_14** [[Ephesians ch_ 4.md]] (votes_ 2)
+- **Deuteronomy 13_3** → **2 Thessalonians 2_11** [[2 Thessalonians ch_ 2.md]] (votes_ 3)
+- **Deuteronomy 13_3** → **1 John 2_19** [[1 John ch_ 2.md]] (votes_ 2)
+- **Deuteronomy 13_3** → **Deuteronomy 8_16** [[Deuteronomy ch_ 8.md]] (votes_ 2)
+- **Deuteronomy 13_3** → **2 Corinthians 8_8** [[2 Corinthians ch_ 8.md]] (votes_ 2)
+- **Deuteronomy 13_3** → **1 John 4_1** [[1 John ch_ 4.md]] (votes_ 3)
+- **Deuteronomy 13_3** → **Deuteronomy 6_5** [[Deuteronomy ch_ 6.md]] (votes_ 4)
+- **Deuteronomy 13_3** → **1 Corinthians 11_19** [[1 Corinthians ch_ 11.md]] (votes_ 5)
+- **Deuteronomy 13_3** → **Matthew 24_24** [[Matthew ch_ 24.md]] (votes_ 3)
+- **Deuteronomy 13_3** → **Acts 17_11** [[Acts ch_ 17.md]] (votes_ 2)
+- **Deuteronomy 13_3** → **Psalms 81_7** [[Psalms ch_ 81.md]] (votes_ 2)
+- **Deuteronomy 13_3** → **1 John 4_4** [[1 John ch_ 4.md]] (votes_ 2)
+- **Deuteronomy 13_4** → **Luke 1_6** [[Luke ch_ 1.md]] (votes_ 5)
+- **Deuteronomy 13_4** → **Romans 6_13** [[Romans ch_ 6.md]] (votes_ 5)
+- **Deuteronomy 13_4** → **Micah 6_8** [[Micah ch_ 6.md]] (votes_ 8)
+- **Deuteronomy 13_4** → **Deuteronomy 10_20** [[Deuteronomy ch_ 10.md]] (votes_ 15)
+- **Deuteronomy 13_4** → **Deuteronomy 30_20** [[Deuteronomy ch_ 30.md]] (votes_ 8)
+- **Deuteronomy 13_4** → **Colossians 1_10** [[Colossians ch_ 1.md]] (votes_ 18)
+- **Deuteronomy 13_4** → **Deuteronomy 6_13** [[Deuteronomy ch_ 6.md]] (votes_ 6)
+- **Deuteronomy 13_4** → **2 Chronicles 34_31** [[2 Chronicles ch_ 34.md]] (votes_ 9)
+- **Deuteronomy 13_4** → **2 Kings 23_3** [[2 Kings ch_ 23.md]] (votes_ 9)
+- **Deuteronomy 13_4** → **1 Corinthians 6_17** [[1 Corinthians ch_ 6.md]] (votes_ 12)
+- **Deuteronomy 13_4** → **Jeremiah 7_23** [[Jeremiah ch_ 7.md]] (votes_ 11)
+- **Deuteronomy 13_5** → **Deuteronomy 22_24** [[Deuteronomy ch_ 22.md]] (votes_ 2)
+- **Deuteronomy 13_5** → **Deuteronomy 22_21** [[Deuteronomy ch_ 22.md]] (votes_ 3)
+- **Deuteronomy 13_5** → **Deuteronomy 19_19** [[Deuteronomy ch_ 19.md]] (votes_ 3)
+- **Deuteronomy 13_5** → **Acts 13_8** [[Acts ch_ 13.md]] (votes_ 2)
+- **Deuteronomy 13_5** → **Deuteronomy 18_20** [[Deuteronomy ch_ 18.md]] (votes_ 4)
+- **Deuteronomy 13_5** → **Revelation 19_20** [[Revelation ch_ 19.md]] (votes_ 2)
+- **Deuteronomy 13_5** → **Deuteronomy 24_7** [[Deuteronomy ch_ 24.md]] (votes_ 3)
+- **Deuteronomy 13_5** → **1 Kings 18_40** [[1 Kings ch_ 18.md]] (votes_ 2)
+- **Deuteronomy 13_5** → **Zechariah 13_3** [[Zechariah ch_ 13.md]] (votes_ 2)
+- **Deuteronomy 13_5** → **Deuteronomy 13_10** [[Deuteronomy ch_ 13.md]] (votes_ 3)
+- **Deuteronomy 13_5** → **1 Corinthians 5_13** [[1 Corinthians ch_ 5.md]] (votes_ 4)
+- **Deuteronomy 13_5** → **Jeremiah 50_6** [[Jeremiah ch_ 50.md]] (votes_ 2)
+- **Deuteronomy 13_5** → **Jeremiah 14_15** [[Jeremiah ch_ 14.md]] (votes_ 3)
+- **Deuteronomy 13_5** → **Deuteronomy 17_7** [[Deuteronomy ch_ 17.md]] (votes_ 3)
+- **Deuteronomy 13_5** → **Deuteronomy 7_4** [[Deuteronomy ch_ 7.md]] (votes_ 1)
+- **Deuteronomy 13_6** → **Judges 10_6** [[Judges ch_ 10.md]] (votes_ 2)
+- **Deuteronomy 13_6** → **Genesis 16_5** [[Genesis ch_ 16.md]] (votes_ 2)
+- **Deuteronomy 13_6** → **Proverbs 18_24** [[Proverbs ch_ 18.md]] (votes_ 4)
+- **Deuteronomy 13_6** → **1 Samuel 18_1** [[1 Samuel ch_ 18.md]] (votes_ 3)
+- **Deuteronomy 13_6** → **Job 31_27** [[Job ch_ 31.md]] (votes_ 2)
+- **Deuteronomy 13_6** → **2 Peter 2_1** [[2 Peter ch_ 2.md]] (votes_ 5)
+- **Deuteronomy 13_6** → **Judges 5_8** [[Judges ch_ 5.md]] (votes_ 2)
+- **Deuteronomy 13_6** → **Ephesians 4_14** [[Ephesians ch_ 4.md]] (votes_ 5)
+- **Deuteronomy 13_6** → **Revelation 12_9** [[Revelation ch_ 12.md]] (votes_ 3)
+- **Deuteronomy 13_6** → **Judges 2_13** [[Judges ch_ 2.md]] (votes_ 2)
+- **Deuteronomy 13_6** → **1 Samuel 18_3** [[1 Samuel ch_ 18.md]] (votes_ 3)
+- **Deuteronomy 13_6** → **Revelation 20_3** [[Revelation ch_ 20.md]] (votes_ 3)
+- **Deuteronomy 13_6** → **Galatians 2_4** [[Galatians ch_ 2.md]] (votes_ 2)
+- **Deuteronomy 13_6** → **2 Samuel 1_26** [[2 Samuel ch_ 1.md]] (votes_ 1)
+- **Deuteronomy 13_6** → **Colossians 2_4** [[Colossians ch_ 2.md]] (votes_ 2)
+- **Deuteronomy 13_6** → **2 Corinthians 5_16** [[2 Corinthians ch_ 5.md]] (votes_ 2)
+- **Deuteronomy 13_6** → **Deuteronomy 29_18** [[Deuteronomy ch_ 29.md]] (votes_ 3)
+- **Deuteronomy 13_6** → **1 Samuel 20_17** [[1 Samuel ch_ 20.md]] (votes_ 3)
+- **Deuteronomy 13_6** → **Proverbs 5_20** [[Proverbs ch_ 5.md]] (votes_ 1)
+- **Deuteronomy 13_6** → **Deuteronomy 28_54** [[Deuteronomy ch_ 28.md]] (votes_ 3)
+- **Deuteronomy 13_6** → **Revelation 13_14** [[Revelation ch_ 13.md]] (votes_ 2)
+- **Deuteronomy 13_8** → **1 John 5_21** [[1 John ch_ 5.md]] (votes_ 2)
+- **Deuteronomy 13_8** → **Exodus 20_3** [[Exodus ch_ 20.md]] (votes_ 2)
+- **Deuteronomy 13_8** → **Deuteronomy 7_16** [[Deuteronomy ch_ 7.md]] (votes_ 4)
+- **Deuteronomy 13_8** → **Proverbs 1_10** [[Proverbs ch_ 1.md]] (votes_ 5)
+- **Deuteronomy 13_8** → **Ezekiel 5_11** [[Ezekiel ch_ 5.md]] (votes_ 2)
+- **Deuteronomy 13_8** → **Deuteronomy 19_13** [[Deuteronomy ch_ 19.md]] (votes_ 5)
+- **Deuteronomy 13_9** → **Acts 7_58** [[Acts ch_ 7.md]] (votes_ 2)
+- **Deuteronomy 13_9** → **John 8_7** [[John ch_ 8.md]] (votes_ 2)
+- **Deuteronomy 13_9** → **Matthew 10_37** [[Matthew ch_ 10.md]] (votes_ 2)
+- **Deuteronomy 13_9** → **Luke 14_26** [[Luke ch_ 14.md]] (votes_ 2)
+- **Deuteronomy 13_10** → **Joshua 7_25** [[Joshua ch_ 7.md]] (votes_ 3)
+- **Deuteronomy 13_10** → **Leviticus 24_23** [[Leviticus ch_ 24.md]] (votes_ 2)
+- **Deuteronomy 13_10** → **2 Chronicles 24_21** [[2 Chronicles ch_ 24.md]] (votes_ 2)
+- **Deuteronomy 13_10** → **Leviticus 20_27** [[Leviticus ch_ 20.md]] (votes_ 2)
+- **Deuteronomy 13_10** → **Leviticus 20_2** [[Leviticus ch_ 20.md]] (votes_ 2)
+- **Deuteronomy 13_10** → **Deuteronomy 21_21** [[Deuteronomy ch_ 21.md]] (votes_ 2)
+- **Deuteronomy 13_10** → **Exodus 20_2** [[Exodus ch_ 20.md]] (votes_ 2)
+- **Deuteronomy 13_11** → **1 Timothy 5_20** [[1 Timothy ch_ 5.md]] (votes_ 2)
+- **Deuteronomy 13_11** → **Deuteronomy 17_13** [[Deuteronomy ch_ 17.md]] (votes_ 3)
+- **Deuteronomy 13_11** → **Deuteronomy 19_20** [[Deuteronomy ch_ 19.md]] (votes_ 5)
+- **Deuteronomy 13_11** → **Proverbs 21_11** [[Proverbs ch_ 21.md]] (votes_ 2)
+- **Deuteronomy 13_11** → **Proverbs 19_25** [[Proverbs ch_ 19.md]] (votes_ 2)
+- **Deuteronomy 13_13** → **1 Samuel 2_12** [[1 Samuel ch_ 2.md]] (votes_ 3)
+- **Deuteronomy 13_13** → **Deuteronomy 13_6** [[Deuteronomy ch_ 13.md]] (votes_ 4)
+- **Deuteronomy 13_13** → **Deuteronomy 4_19** [[Deuteronomy ch_ 4.md]] (votes_ 2)
+- **Deuteronomy 13_13** → **2 Samuel 23_6** [[2 Samuel ch_ 23.md]] (votes_ 3)
+- **Deuteronomy 13_13** → **1 Samuel 25_17** [[1 Samuel ch_ 25.md]] (votes_ 3)
+- **Deuteronomy 13_13** → **2 Chronicles 13_7** [[2 Chronicles ch_ 13.md]] (votes_ 2)
+- **Deuteronomy 13_13** → **2 Samuel 20_1** [[2 Samuel ch_ 20.md]] (votes_ 3)
+- **Deuteronomy 13_13** → **1 Kings 21_13** [[1 Kings ch_ 21.md]] (votes_ 3)
+- **Deuteronomy 13_13** → **Judges 19_22** [[Judges ch_ 19.md]] (votes_ 3)
+- **Deuteronomy 13_13** → **Jude 1_19** [[Jude ch_ 1.md]] (votes_ 3)
+- **Deuteronomy 13_13** → **2 Corinthians 6_15** [[2 Corinthians ch_ 6.md]] (votes_ 4)
+- **Deuteronomy 13_13** → **1 John 2_19** [[1 John ch_ 2.md]] (votes_ 5)
+- **Deuteronomy 13_13** → **2 Samuel 16_7** [[2 Samuel ch_ 16.md]] (votes_ 3)
+- **Deuteronomy 13_13** → **1 John 3_10** [[1 John ch_ 3.md]] (votes_ 2)
+- **Deuteronomy 13_13** → **John 8_44** [[John ch_ 8.md]] (votes_ 3)
+- **Deuteronomy 13_13** → **1 Kings 21_10** [[1 Kings ch_ 21.md]] (votes_ 3)
+- **Deuteronomy 13_13** → **1 Samuel 10_27** [[1 Samuel ch_ 10.md]] (votes_ 2)
+- **Deuteronomy 13_13** → **2 Kings 17_21** [[2 Kings ch_ 17.md]] (votes_ 2)
+- **Deuteronomy 13_13** → **Judges 20_13** [[Judges ch_ 20.md]] (votes_ 3)
+- **Deuteronomy 13_13** → **Deuteronomy 13_2** [[Deuteronomy ch_ 13.md]] (votes_ 4)
+- **Deuteronomy 13_13** → **1 Samuel 25_25** [[1 Samuel ch_ 25.md]] (votes_ 2)
+- **Deuteronomy 13_14** → **Numbers 35_30** [[Numbers ch_ 35.md]] (votes_ 3)
+- **Deuteronomy 13_14** → **Deuteronomy 10_18** [[Deuteronomy ch_ 10.md]] (votes_ 3)
+- **Deuteronomy 13_14** → **1 Timothy 5_19** [[1 Timothy ch_ 5.md]] (votes_ 4)
+- **Deuteronomy 13_14** → **John 7_24** [[John ch_ 7.md]] (votes_ 4)
+- **Deuteronomy 13_14** → **Deuteronomy 17_4** [[Deuteronomy ch_ 17.md]] (votes_ 5)
+- **Deuteronomy 13_15** → **Leviticus 27_28** [[Leviticus ch_ 27.md]] (votes_ 3)
+- **Deuteronomy 13_15** → **Revelation 17_16** [[Revelation ch_ 17.md]] (votes_ 2)
+- **Deuteronomy 13_15** → **Exodus 22_20** [[Exodus ch_ 22.md]] (votes_ 3)
+- **Deuteronomy 13_15** → **Judges 20_48** [[Judges ch_ 20.md]] (votes_ 2)
+- **Deuteronomy 13_15** → **Exodus 23_24** [[Exodus ch_ 23.md]] (votes_ 2)
+- **Deuteronomy 13_15** → **Joshua 6_24** [[Joshua ch_ 6.md]] (votes_ 2)
+- **Deuteronomy 13_15** → **Deuteronomy 2_34** [[Deuteronomy ch_ 2.md]] (votes_ 2)
+- **Deuteronomy 13_15** → **Deuteronomy 7_16** [[Deuteronomy ch_ 7.md]] (votes_ 2)
+- **Deuteronomy 13_15** → **Deuteronomy 7_2** [[Deuteronomy ch_ 7.md]] (votes_ 3)
+- **Deuteronomy 13_16** → **Isaiah 25_2** [[Isaiah ch_ 25.md]] (votes_ 4)
+- **Deuteronomy 13_16** → **Joshua 6_24** [[Joshua ch_ 6.md]] (votes_ 4)
+- **Deuteronomy 13_16** → **Joshua 6_26** [[Joshua ch_ 6.md]] (votes_ 2)
+- **Deuteronomy 13_16** → **Micah 1_6** [[Micah ch_ 1.md]] (votes_ 2)
+- **Deuteronomy 13_16** → **Joshua 8_28** [[Joshua ch_ 8.md]] (votes_ 5)
+- **Deuteronomy 13_16** → **Jeremiah 49_2** [[Jeremiah ch_ 49.md]] (votes_ 5)
+- **Deuteronomy 13_16** → **Isaiah 17_1** [[Isaiah ch_ 17.md]] (votes_ 4)
+- **Deuteronomy 13_17** → **1 Corinthians 16_22** [[1 Corinthians ch_ 16.md]] (votes_ 2)
+- **Deuteronomy 13_17** → **Deuteronomy 30_3** [[Deuteronomy ch_ 30.md]] (votes_ 3)
+- **Deuteronomy 13_17** → **Joshua 6_18** [[Joshua ch_ 6.md]] (votes_ 3)
+- **Deuteronomy 13_17** → **Genesis 28_14** [[Genesis ch_ 28.md]] (votes_ 3)
+- **Deuteronomy 13_17** → **Genesis 26_24** [[Genesis ch_ 26.md]] (votes_ 4)
+- **Deuteronomy 13_17** → **Joshua 7_1** [[Joshua ch_ 7.md]] (votes_ 2)
+- **Deuteronomy 13_17** → **Lamentations 3_32** [[Lamentations ch_ 3.md]] (votes_ 2)
+- **Deuteronomy 13_17** → **Deuteronomy 7_13** [[Deuteronomy ch_ 7.md]] (votes_ 2)
+- **Deuteronomy 13_17** → **Ezekiel 37_26** [[Ezekiel ch_ 37.md]] (votes_ 2)
+- **Deuteronomy 13_17** → **Joshua 6_26** [[Joshua ch_ 6.md]] (votes_ 2)
+- **Deuteronomy 13_17** → **Joshua 22_20** [[Joshua ch_ 22.md]] (votes_ 2)
+- **Deuteronomy 13_17** → **Numbers 25_4** [[Numbers ch_ 25.md]] (votes_ 2)
+- **Deuteronomy 13_17** → **Joshua 7_26** [[Joshua ch_ 7.md]] (votes_ 4)
+- **Deuteronomy 13_17** → **Psalms 78_38** [[Psalms ch_ 78.md]] (votes_ 2)
+- **Deuteronomy 13_17** → **Exodus 20_6** [[Exodus ch_ 20.md]] (votes_ 2)
+- **Deuteronomy 13_17** → **Genesis 26_4** [[Genesis ch_ 26.md]] (votes_ 4)
+- **Deuteronomy 13_17** → **Deuteronomy 7_26** [[Deuteronomy ch_ 7.md]] (votes_ 4)
+- **Deuteronomy 13_18** → **Matthew 7_21** [[Matthew ch_ 7.md]] (votes_ 4)
+- **Deuteronomy 13_18** → **Matthew 7_24** [[Matthew ch_ 7.md]] (votes_ 4)
+- **Deuteronomy 13_18** → **Deuteronomy 12_28** [[Deuteronomy ch_ 12.md]] (votes_ 5)
+- **Deuteronomy 13_18** → **Deuteronomy 12_32** [[Deuteronomy ch_ 12.md]] (votes_ 3)
+- **Deuteronomy 13_18** → **Matthew 6_33** [[Matthew ch_ 6.md]] (votes_ 3)
+- **Deuteronomy 13_18** → **Psalms 119_6** [[Psalms ch_ 119.md]] (votes_ 3)
+- **Deuteronomy 13_18** → **Deuteronomy 12_25** [[Deuteronomy ch_ 12.md]] (votes_ 4)
